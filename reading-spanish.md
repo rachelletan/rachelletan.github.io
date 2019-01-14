@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Reading Edition (Spanish)
+title: Reading Edition \(Spanish\)
 subtitle: Transcription by Rachelle Ann Tan
 ---
 
