@@ -22,8 +22,8 @@ description: A minimal edition of _Regla de la Sagrada Orden de Penitencia_ (c. 
 # List of links in the navigation bar
 navbar-links:
   Editions:
-    - Reading Edition: ""
-    - Facsimile Edition: ""
+    - Reading Edition: "https://rachelletan.github.io"
+    - Facsimile Edition: "https://rachelletan.github.io"
   Contexts
   Conventions
   Personajes
@@ -38,8 +38,7 @@ navbar-links:
 # Remove this parameter if you don't want an image in the navbar
 avatar: "/img/avatar-icon.png"
 
-# If you want to have an image logo in the top-left corner instead of the title text,
-# then specify the following parameter
+# If you want to have an image logo in the top-left corner instead of the title text, then specify the following parameter
 # title-img: /path/to/image
 
 # --- Background colour/image options --- #
@@ -54,15 +53,12 @@ footer-col: "#F5F5F5"
 footer-text-col: "#777777"
 footer-link-col: "#404040"
 
-# Alternatively, the navbar, footer, and page background can be set to use background images
-# instead of colour
-
+# Alternatively, the navbar, footer, and page background can be set to use background images instead of colour
 # navbar-img: "/img/bgimage.png"
 # footer-img: "/img/bgimage.png"
 # page-img: "/img/bgimage.png"
 
 # --- Footer options --- #
-
 # Change all these values or delete the ones you don't want.
 # Important: you must keep the "name" parameter, everything else you can remove
 author:
@@ -98,7 +94,6 @@ share-links-active:
 url-pretty: "rachelletan.github.io"  
 
 # --- Web Statistics Section --- #
-
 # Fill in your Google Analytics gtag.js ID to track your website using gtag
 #gtag: ""
 
@@ -118,7 +113,6 @@ url-pretty: "rachelletan.github.io"
 #  opt-out: true
 
 # --- Comments --- #
-
 # Fill in your Disqus shortname (NOT the userid) if you want to support Disqus comments
 # disqus: ""
 
@@ -126,7 +120,6 @@ url-pretty: "rachelletan.github.io"
 # fb_comment_id: ""
 
 # --- Misc --- #
-
 # Facebook App ID
 # fb_app_id: ""
 
