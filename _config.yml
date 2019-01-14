@@ -23,7 +23,8 @@ description: A minimal edition of _Regla de la Sagrada Orden de Penitencia_ (c. 
 # List of links in the navigation bar
 navbar-links:
   Editions:
-    - Reading Edition: "reading"
+    - Reading Edition (Spanish): "reading-spanish"
+    - Reading Edition (English): "reading-english"
     - Facsimile Edition: "facsimile"
   Contexts: "contexts"
   Conventions: "conventions"
