@@ -24,9 +24,9 @@ navbar-links:
   Editions:
     - Reading Edition: "https://rachelletan.github.io"
     - Facsimile Edition: "https://rachelletan.github.io"
-  Contexts
-  Conventions
-  Personajes
+  Contexts:
+  Conventions:
+  Personajes:
   Resources:
     - Bibliography
     - Beautiful Jekyll theme: "http://deanattali.com/beautiful-jekyll/"
