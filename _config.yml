@@ -31,7 +31,6 @@ navbar-links:
   People: "people"
   Resources:
     - Bibliography: "bibliography"
-    - Web Resources: "webresources"
     - UVic Library: "https://www.uvic.ca/library/"
     - About Me: "aboutme"
 
