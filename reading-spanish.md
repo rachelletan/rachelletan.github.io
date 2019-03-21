@@ -4,7 +4,7 @@ title: Transcription
 subtitle: <i>Transcription of MS.Span.1 by Rachelle Ann Tan</i>
 ---
 
-# fol. 1r
+## fol. 1r
 **.ih(es)us.  
 .Jn dei nomine ame(n).  
 Nos fray antonio**  
@@ -37,7 +37,7 @@ grada Religion (y) orde(n) de penjtençia: Regiendola la divina
 mano, manutenjendola y acresçentandola y decorando  
 la: a cresçido y se a augmentado (y) luzido y floresçido: no so  
 
-# fol. 1v
+## fol. 1v
 lo de varones notables y monJas pero de sanctos y claros  
 palmjtes: por la sancta sede apostolica canonjzados. Cu  
 yas exçellentes vidas y obras Resplandeçen como las  
@@ -70,5 +70,67 @@ centamjento asido tanto q(ue) sie(n)do estableçida al prinçipio
 para los conJugados para q(ue) biviessen en sus casas y en par  
 ticular allende de los diujnos p(res)çeptos obligados a sola  
 
-# fol. 2r
+## fol. 2r
+obediençia. Agora y de muchos tiempos aca: a aujdo yay  
+en ella varones y mugeres, frayles y mo(n)Jas, letrados  
+sçientissimos q(ue) predican la palabra diujna y dexando  
+la vida actiua de casados moran en muchos loables  
+y honrrados monesterios: q(ue) an hecho y adquirido, do  
+se an eleuado y alçado y alunbrado sus pensamjentos  
+y entendimjentos y obras: En la vida co(n)te(m)platiua.  
+alabando continuamente co(n) sus sanctos y diujnos  
+clamores y loores el nonbre del muy alto hazedor su  
+yo. Negando sus propias voluntades, sometiendolas  
+al yugo de la Religio(n) prometiendo los tres votos esse(m)p  
+çiales: obediençia castidad y pobreza. Reputando  
+las cossas diujnas por verdaderas y estables dexa(n)do  
+el mu(n)do y sus plazeres y po(n)pas. padesçiendo hanbre  
+y frio y sed por se engolfar en aq(ue)l pielago de la co(n)te(m)pla  
+cio(n) y alabança co(n)tinua de n(uest)ro soberano sen(n)or. trocan  
+do los bienes terrenales (y) dexandolos por los çelestia  
+les. y los transitorios por los perpetuos. y siendo co  
+mo fue estableçida para un estado: la diujna provi  
+dençia usando con ella de sus jnmensos benefiçios:  
+la a ampliado: no solo a conJugados pero a fray  
+les y monJas q(ue) biuen en co(n)ventos y casas y moneste  
+rios colegialmente y a heremjtas y a biudos con  
+tinentes y a otras personas deste habito. Pues co(n)s  
+tando todo esto al n(uest)ro muy sancto padre clemente  
+septimo moderno: Rebolujendo su anjmo y consi  
+derando quanto la dicha sagrada Religion y orden  
+de penjtençia meresçia ser honrrada y acresçentada  
+por su bulla patente graçiosa escripta en latin y en per  
+gamjno (y) sellada con su sello de plomo pendiente  
+en fi los de seda a colores segu(n)d estilo (y) costu(n)bre de  
 
+## fol. 2v
+Roma. ad perpetuam Rei memoriam. Co(n)firmo y  
+aprovo y de nuevo concedio la dicha sagrada orden  
+y Religion de penjtençia de jndulgençias (y) co(n)çessio  
+nes (y) prehemjnençias graçias (y) libertades exe(m)pçio  
+nes jndultos preujllegios prerrogatiuas (y) jn munj  
+dades. q(ue)riendo y mandando: q(ue) como por otras muchas  
+letras apostolicas a sido exempta de las ordenes q(ue) por  
+el bien auenturado padre n(uest)ro sant françisco fuero(n) esta  
+blesçidas. y a sido estatuydo y ordenado y mandado y  
+sentençiado en Juyzio co(n)tradictorio en corte Romana  
+entre las otras ordenes y primera Regla y aujdo sobre  
+tres sentençias co(n)formes y executoriales sobre todas   
+ellas. y quarta sentençia por via de Restituçion da  
+da por los auditores de la sagrada Rota, en confirma  
+çion de las otras, co(n) executoriales sobre todas ellas. q(ue)  
+no tengan co(n)mjxtion nj anexion. (y) exçepto total  
+mente libro la dicha sagrada orden (y) Religion de penj  
+tençia de las otras ordenes. y no qujere q(ue) entre si ten  
+gan njnguna co(n)mjxtion. a(n)te sea libre exempta y or  
+den prinçipal por si mendicante como las otras or  
+denes. y no tengan njngu(n) perlado nj ordinario nj  
+persona de otra orden ansi de los menores obserua(n)  
+tes como de famjllia (y) claustra nj de otra orde(n) nj o  
+tra persona alguna mayor nj menor perlado nj jn  
+ferior superioridad nj entrada nj salida en ella. y fue  
+sen jnmediate subJectos los vissitadores mjnjstros  
+generales por tiempo diputados, a la sancta sede a  
+postolica tomandolos so su protection y amparo  
+y a toda su orden. Ansi mesmo le co(n)firmo y de nue  
+vo co(n)çedio q(ue) gozassen: la dicha orde(n) sagrada de span(n)a,  
