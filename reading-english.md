@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Reading Edition
-subtitle: <i>Translation into English by Rachelle Ann Tan</i>
+subtitle: <i>Translation of MS.Span.1 into English by Rachelle Ann Tan</i>
 ---
 
 ## fol. 1r
@@ -69,4 +69,3 @@ to be instituted, preordained, and founded there, and the
 growth has been such that, being established at the outset
 for married people so that they might live in their houses and in
 particular \[live\] beyond the divine precepts obligatory only to
-
