@@ -1,8 +1,11 @@
 ---
 layout: page
 title: Conventions
-subtitle: subtitle
+subtitle: Some guidelines for transcribing and translating MS.Span.1
 ---
 
-### Conventions
-note on conventions
+## A note on transcription
+note on transcription
+
+## A note on translation
+note on translation
