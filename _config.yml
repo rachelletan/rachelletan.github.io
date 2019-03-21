@@ -23,12 +23,11 @@ description: A minimal edition of _Regla de la Sagrada Orden de Penitencia_ (c. 
 # List of links in the navigation bar
 navbar-links:
   Editions:
-    - Reading Edition (Spanish): "reading-spanish"
+    - Transcription (Spanish): "reading-spanish"
     - Reading Edition (English): "reading-english"
-    - Facsimile Edition: "facsimile"
+    - Facsimile Images: "facsimile"
   Contexts: "contexts"
   Conventions: "conventions"
-  People: "people"
   Resources:
     - Bibliography: "bibliography"
     - UVic Library: "https://www.uvic.ca/library/"
