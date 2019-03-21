@@ -5,9 +5,9 @@ subtitle: <i>Transcription of MS.Span.1 by Rachelle Ann Tan</i>
 ---
 
 # fol. 1r
-**.ih(es)us.  
+**<span style="color:red">.ih(es)us.  
 .Jn dei nomine ame(n).  
-Nos fray antonio**  
+N</span>os fray antonio**  
 de tablada moderno vissitador general (y) mjnjs  
 tro principal, sie\r/uo de toda la sagrada orden de  
 penjtençia de n(uest)ro gl(or)ioso padre sant françisco de  
