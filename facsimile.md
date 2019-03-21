@@ -5,7 +5,9 @@ subtitle: Images provided by the <a href="http://contentdm.library.uvic.ca/cdm/c
 ---
 <br>
 
-First Header | Second Header
+Recto | Verso
 ------------ | -------------
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
 fol. 1r | fol. 1v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2337"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2338">
+fol. 2r | fol. 2v
