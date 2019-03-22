@@ -3,7 +3,7 @@ layout: page
 title: Facsimile Images
 subtitle: Images of MS.Span.1 provided by <a href="http://contentdm.library.uvic.ca/cdm/compoundobject/collection/collection15/id/2403">UVic Digital Collections</a>
 ---
-
+<br>
 Recto | Verso
 --------- | ---------
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
