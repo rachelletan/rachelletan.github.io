@@ -49,5 +49,5 @@ subtitle: and other resources
 - Gruenberger, Jaclyn. _The Early Modern Heraldry Handbook: An Introduction to Victoria, McPherson Library, MS.Brown.Eng.2, including a Semi-Diplomatic Transcription of its Catalogue of English Nobility from William the Conqueror to Elizabeth I_. 2016. University of Victoria, Master’s Project.
 - Johnston, Michael, and Michael Dussen. _The Medieval Manuscript Book: Cultural Approaches_. Cambridge: Cambridge University Press, 2015.
 - Littau, Karin. “First Steps Towards a Media History of Translation.” _Translation Studies_ 4 (2011): 261-281.
-- Southam, Chantal. “Ms.Span.1: List of Contents.” Dec. 2015. [Microsoft Word File](https://www.uvic.ca/library/locations/home/spcoll/documents/ms-span-1_contents.pdf)
+- Southam, Chantal. “Ms.Span.1: List of Contents.” Dec. 2015. [PDF File](https://www.uvic.ca/library/locations/home/spcoll/documents/ms-span-1_contents.pdf)
 
