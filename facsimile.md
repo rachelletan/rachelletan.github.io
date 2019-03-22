@@ -5,7 +5,7 @@ subtitle: Images of MS.Span.1 provided by <a href="http://contentdm.library.uvic
 ---
 <br>
 Recto | Verso
----- | ----
+------ | ------
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
 fol. 1r | fol. 1v
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2337"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2338">
