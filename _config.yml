@@ -17,7 +17,7 @@ url: "http://rachelletan.github.io/index.html"
 title: Regla de la Sagrada Orden de Penitencia (c. 1528-1530)
 
 # Short description of your site
-description: A minimal edition of _Regla de la Sagrada Orden de Penitencia_ (c. 1528-1530)
+description: A digital edition of _Regla de la Sagrada Orden de Penitencia_ (c. 1528-1530)
 
 # --- Navigation bar options --- #
 # List of links in the navigation bar
@@ -35,7 +35,7 @@ navbar-links:
 
 # Image to show in the navigation bar - image must be a square (width = height)
 # Remove this parameter if you don't want an image in the navbar
-avatar: "/img/1r.jpg"
+avatar: "/img/1r-icon.jpg"
 
 # If you want to have an image logo in the top-left corner instead of the title text, then specify the following parameter
 # title-img: /path/to/image
@@ -97,7 +97,7 @@ url-pretty: "rachelletan.github.io"
 #gtag: ""
 
 # Fill in your Google Analytics ID to track your website using GA
-#google_analytics: ""
+google_analytics: "UA-136810608-1"
 
 # Google Tag Manager ID
 #gtm: ""
