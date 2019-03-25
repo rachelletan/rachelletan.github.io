@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Reading Edition
-subtitle: <i>Translation of MS.Span.1 into English by Rachelle Ann Tan</i>
+subtitle:
 ---
 
 ## fol. 1r
