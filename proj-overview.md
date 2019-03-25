@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Project Overview
-subtitle: Remediating a Medieval Spanish Manuscript
+subtitle: Remediating a Medieval Spanish manuscript
 ---
 
 Medieval manuscripts, often not in display in the public eye, offer rich historical, cultural, and technical fields of study. While there are various reasons why such manuscripts are frequently kept in special areas of a library or someplace secure or hidden somewhere else, other factors that might hinder the accessibility of a text include the ability to read (or decipher) medieval handwriting and the ability to understand the language in which the text was written. In general, the physical or electronic accessibility of a text currently poses less of a problem than its textual/linguistic accessibility, simply because it is only a matter of going to the relevant establishment to examine the physical object; in cases where the materiality of the text matters less, digital surrogates (e.g. digital facsimiles or editions) offer viable substitutes for the object itself. However, these surrogates often do not serve their purpose when the reader is unable to read or understand the text. One manuscript codex that considers these factors as potential complications for the modern reader is Victoria, McPherson Library, MS.Span.1. 
