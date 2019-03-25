@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Transcription
-subtitle: <i>Transcription of MS.Span.1 by Rachelle Ann Tan</i>
+subtitle:
 ---
 
 ## fol. 1r
