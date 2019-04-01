@@ -4,7 +4,7 @@ title: Transcription
 subtitle:
 ---
 
-## fol. 1r
+### fol. 1r
 **.ih(es)us.  
 .Jn dei nomine ame(n).  
 Nos fray antonio**  
@@ -37,7 +37,7 @@ grada Religion (y) orde(n) de penjtençia: Regiendola la divina
 mano, manutenjendola y acresçentandola y decorando  
 la: a cresçido y se a augmentado (y) luzido y floresçido: no so  
 
-## fol. 1v
+### fol. 1v
 lo de varones notables y monJas pero de sanctos y claros  
 palmjtes: por la sancta sede apostolica canonjzados. Cu  
 yas exçellentes vidas y obras Resplandeçen como las  
@@ -70,7 +70,7 @@ centamjento asido tanto q(ue) sie(n)do estableçida al prinçipio
 para los conJugados para q(ue) biviessen en sus casas y en par  
 ticular allende de los diujnos p(res)çeptos obligados a sola  
 
-## fol. 2r
+### fol. 2r
 obediençia. Agora y de muchos tiempos aca: a aujdo yay  
 en ella varones y mugeres, frayles y mo(n)Jas, letrados  
 sçientissimos q(ue) predican la palabra diujna y dexando  
@@ -103,7 +103,7 @@ por su bulla patente graçiosa escripta en latin y en per
 gamjno (y) sellada con su sello de plomo pendiente  
 en fi los de seda a colores segu(n)d estilo (y) costu(n)bre de  
 
-## fol. 2v
+### fol. 2v
 Roma. ad perpetuam Rei memoriam. Co(n)firmo y  
 aprovo y de nuevo concedio la dicha sagrada orden  
 y Religion de penjtençia de jndulgençias (y) co(n)çessio  
@@ -135,7 +135,7 @@ postolica tomandolos so su protection y amparo
 y a toda su orden. Ansi mesmo le co(n)firmo y de nue  
 vo co(n)çedio q(ue) gozassen: la dicha orde(n) sagrada de span(n)a,  
 
-## fol. 3r
+### fol. 3r
 vissitador mjnjstro general perlado y frayles y mon  
 Jas heremjtas y conJugados y Religiossos y sus cas  
 sas y monesterios y todos sus bienes y serujdores  
@@ -167,7 +167,7 @@ de la sagrada orde(n) de penjtençia de la Regular obser
 uançia de sant françisco. ansi seran nonbrados en  
 sus escriptos (y) autos publicos. Como en otra ma  
 
-## fol. 3v
+### fol. 3v
 nera, nj los llamen ni no(n)bre(n) por otro vocablo  
 menos honrrado, nj entren en sus monesterios,  
 casas, (y) bienes quales qujer, nj los vissiten los  
@@ -199,7 +199,7 @@ njnguno, que vinjere del siglo, a esta sagrada orden,
 a la profession della. (y) q(ue) el frayle o mo(n)Ja o Religios  
 sos o Religiossas de qualqujer manera q(ue) sean: si por  
 
-## fol. 4r
+### fol. 4r
 el, no fueren Resçebidos (y) dado les el habito (y) pro  
 fessio(n) de la dicha orden: no puedan ser, nj sean frayles,  
 nj monJas (y) Religiossos della. nj goze(n) della, nj de sus  
@@ -231,7 +231,7 @@ ra salud de sus anjmas, (y) por co(n)seruaçio(n) de la dicha
 orde(n) (y) Religion: pueda trasladar (y) mudar los fray  
 les (y) monJas de la dicha orden, de un monesterio a  
 
-## fol. 4v
+### fol. 4v
 otro. (y) si vissitare algu(n) monesterio o casa: (y) fallare el  
 mjnjstro o abbadessa de la tal casa, menos abil o mal  
 gouernar. los pueda ammouer. (y) dipputar (y) poner  
@@ -263,6 +263,105 @@ te o estatutos co(n) su prohemjo (y) capitulos: para to
 dos los quatro estados (y) personas de la dicha orden:  
 perpetuamente para siempre Jamas. (y) mando qujso  
 
-## fol. 5r
+### fol. 5r
+(y) estableçio (y) ordeno q(ue) tuvisse fuerza (y) vez de Regla  
+como si por su sanctidad, fuese hecha (y) ordenada (y) esta  
+bleçida (y) a ella se estuviesse. (y) fuese jnviolableme(n)te  
+guardada (y) obtemperada por todos los frayles (y) mo(n)  
+Jas de la dicha orde(n). (y) por otras quallesqujer personas  
+della. (y) no quebrantada de persona alguna. (y) ansi por  
+nos hecha ordenada (y) estableçida, su sanctidad la co(n)  
+firma (y) aprueua. (y) manda q(ue) se lea en los capitulos  
+(y) co(n)ventos (y) comunjdades: po\r/ tal Regla (y) co\mo/ se leen  
+las otras Reglas de todas las otras ordenes. dando  
+(y) co(n)çediendo facultad al dicho vissitador mjnjstro  
+general (y) a los q(ue) por tiempo fuere(n) para q(ue) puedan jn  
+terpretar (y) declarar qualesqujer dubdas q(ue) ocurri  
+eren por tiempo a la dicha orden (y) Regla (y) bulas (y)  
+co(n)stituçiones (y) estatutos (y) costu(n)bres. (y) en todas  
+las cosas sobre dichas (y) jnfrascriptas (y) las puedan (y)  
+no otro alguno jnterpretar (y) declarar (y) dezir (y) Juz  
+gar. y se este a su jnterpretaçio(n) declaraçio(n) (y) deçission,  
+(y) Juyzio. segu(n)d q(ue) estas cosas (y) otras muchas: mas  
+largamente: en la dicha sancta bula, a nos (y) a n(uest)ra sa  
+grada Religio(n) (y) orden de penjtençia, co(n)çessa, se co(n)tie  
+ne. la qual bulla comjença. **Clemens**, episco  
+pus seruus seruor(um) dei, ad perpetuam Rei memoriam.  
+ad uberes fructus, quos, sacer ordo de penjtençia, qua(m)  
+seraphicus ille, homjnun verus piscator, ut anjmas  
+o(m)nes, lucri faceret creatori: nemo q(ue) se absconderet  
+a charitatis calore: spiritu sancto ilumjnatus beat(us)  
+franciscus jnstituit: jn horreu(m) domjnj actenus et  
+dixit. (et) c(etera). la qual dicha bulla por eujtar prolixidad  
+aquj no mandamos en corporar. (y) por q(ue) della fue  
+
+### fol. 5v
+dada conplida notiçia en capitulo general: a todos  
+los Religiossos q(ue) a el vinjero(n). asi perlados como sub  
+ditos. (y) por si y enonbre de toda la orde(n) la obedesçie  
+ro(n). Juntamente co(n) la otra bulla: q(ue) en execuçion de  
+la dicha bulla su sanctidad dio. (y) tan bien se mando  
+dar notiçia co(n)plida de las dichas bullas, a todos los  
+co(n)ventos dela dicha orde(n) para q(ue) mas verificamente  
+les co(n)ste la verdad. (y) por tanto la avemos aquj de ver  
+bo ad verbu(m) por expressa (y) encorporada. (et) c(etera). (y) por  
+quanto nos los dichos vissitador mjnjstro general  
+(y) presidente (y) diffinjdores de consensu (y) acuerdo de  
+todo n(uest)ro general capitulo q(ue) aquj çelebramos en es  
+ta presente domjnjca jntra octauas natiujtatis sa(n)c  
+ti Joannjs baptiste. en esta n(uest)ra casa (y) monesterio,  
+(y) co(n)vento de sancta maria del valle, astoriçensis dio  
+cessis. viendo quan bien este hecho (y) proueydo. (y)  
+lo q(ue) en n(uest)ros otros capitulos auemos hecho (y) esta  
+bleçido (y) ordenado. (y) costu(n)bres q(ue) la orde(n) tiene todo  
+lo loamos (y) aprouamos. (y) establesçemos (y) man  
+damos, segu(n)d q(ue) en la Relaçio(n) dela dicha sancta bula  
+(y) en ella (y) en las otras bullas (y) facultades aposto  
+licas (y) estatutos (y) ordenaçiones (y) costu(n)bres se co(n)  
+tiene. (y) por la presente (y) por la authoridad aposto  
+lica, a nos cometida en esta parte, por el dicho n(uest)ro muy  
+sancto padre clemente septimo: por la dicha sancta bu  
+la, a nos conçedida. (y) por la facultad q(ue) nos co(n)çede:  
+para hazer nueuamente Regla (y) ordenaçiones (y)  
+constituçiones (y) estatutos. para siempre Jamas, sea(n)  
+aujdos por Regla (y) tengan entera fuerza (y) vigor. co(n)  
+formando nos co(n) las sazones (y) tiempos. (y) proueye(n)do,  
+
+### fol. 6r
+en las cosas q(ue) nos paresçen ser bien (y) pro (y) hutilidad  
+(y) augmento de buena governaçion (y) Regimjento (y)  
+decoraçio(n) (y) co(n)seruacion de la dicha orden (y) Religion  
+de penjtençia. (y) saluaçion de todos los Religiossos de  
+ella. usando de la dicha liçencia poder (y) facultad por a  
+q(ue)lla via (y) forma (y) orde(n) q(ue) meJor podemos (y) deuemos,  
+aquj en n(uest)ro capitulo general, primeramente cele  
+brado, despues de la dicha co(n)çession de la dicha sancta  
+bula, asignado en esta deuota casa de n(uest)ra sen(n)ora san  
+cta maria del valle, hazemos, establesçemos, esta  
+tuymos la Regla (y) ordenaçiones co(n)stituçiones (y)  
+ordenanças (y) estatutos (y) preçeptos sigujentes  
+  
+     ¶. Regnu(m) celor(um) vim patitur per penjtenciam .  
+  
+     ¶. Comjença la Regla de la orden sagrada de pe  
+njtençia de la Regular obseruançia de n(uest)ro sera  
+phico padre sant françisco. ansi para los frayles  
+(y) monJas q(ue) colegialmente biuen en casas (y) mo  
+nesterios, como para hermjtan(n)os biudos conti  
+nentes, conJugados (y) personas del siglo  
+  
+     ¶. Religiossos de todos los Reynos de espan(n)a (y)  
+         portugal (y) otras partes quales qujer  
+  
+  ¶ Jncipit foeliciter  
+  
+     ¶ Penjtenciam agite appropinquabit enjm regnu(m) celor(um)  
+  
+  ¶ Mathei .3. et .4. capitulis  
+  
+¶ Capitulo primero de los estados (y) personas  
+desta sagrada orde(n) de penjtençia de la Regular obserua(n)çia:  
+
+### fol. 6v
 
 
