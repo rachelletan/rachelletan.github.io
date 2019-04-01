@@ -523,7 +523,7 @@ to: q(ue) dixo a sus disçipulos en no(n)bre de todos. Aprende
 de mj q(ue) soy manso (y) humjlde de coraço(n). de manera  
 q(ue) lo q(ue) mas les encargamos (y) mandamos q(ue) sean:  
 
-\[.muy.\]
+<p align = "right">\[.muy.\]</p>
 
 ### fol. 9r
 muy subJectos al dicho padre vissitador mjnjstro  
@@ -587,7 +587,125 @@ estuviere en corte Real por medio an(n)o (y) si estuvi
 ere impedido de algun Justo impedimento, o  
 
 ### fol. 10r
+por enfermedad o otra nesçessaria causa q(ue) lo pue  
+da prorogar por espacio de tres meses primeros  
+sigujentes todo afine triennjj, E q(ue) en este tiempo  
+prorogado Respectiue huse de su officio (y) tenga  
+aq(ue)l mesmo poder (y) facultad q(ue) durante su trie(n)nj  
+o tenja Sin njnguna limjtacion nj dimjnucion  
+(y) q(ue) de aquj adelante imperpetuum sea co(n)vocado (y)  
+çelebrado capitulo general en este n(uest)ro monesterio  
+de sancta maria del valle astoriçensis dioçesis co  
+mo lugar co(n)uenjente (y) mas opportuno para e  
+llo por estar do esta situado (y) alli ala tal çelebra  
+cion (y) al dicho capitulo general vayan los mjnjs  
+tros de todos los monesterios de la dicha orden.  
+salvo los impedidos por enfermedad o veJez o  
+otra Justa causa (y) co(n) liçencia del vissitador mjnjs  
+tro general. y vayan con ellos los discretos pro  
+curadores de sus casas y cada monesterio te(n)ga  
+dos votos aujendo en el Religiosos. conviene  
+a saber vn voto el mjnjstro y otro el discreto en  
+nonbre de la co(m)munjdad el qual discreto lleue  
+el poder del convento inscriptis firmado de los Re  
+ligiossos de su convento (y) para el dia asignado  
+para la çelebracion del dicho capitulo ante todas  
+cosas se eligan por votos quatro diffinjdores y  
+un presidente, y un escriuano buenos varones  
+(y) sabios (y) temerosos de dios. y el dicho vissitador  
+mjnjstro general Renuncie su officio en manos  
+del presidente (y) diffinjdores (y) capitulo. el qual  
 
+### fol. 10v
+presidente presida y tenga el dicho capitulo como  
+perlado. despues q(ue) el general vissitador aya Renu(n)  
+ciado su officio, pero antes q(ue) Renuncie presida en  
+Renu(n)ciandolo, cese su poder (y) presida el preside(n)te  
+(y) oya las querellas de todos (y) faga (y) admjnjstre  
+Justicia como le paresciere conforme a Religion  
+(y) la dicha election del dicho vissitador mjnjstro  
+general se haga por escrutinjo tomandose los vo  
+tos por Juramento (y) los votos sean yguales en  
+calidad (y) el presidente (y) diffinjdores (y) escriuano  
+voten primero (y) luego los mjnjstros (y) despues  
+los discretos procuradores. (y) sea vissitador mjnjs  
+tro general aquel q(ue) fuere elegido por la mayor par  
+te de los votos q(ue) pasen de la meytad (y) si por caso  
+oviere paridad en los votos votando en dos Reli  
+giosos, q(ue) obtenga (y) se prefiera la election donde  
+concurrieren la mayor parte de los mjnjstros, (y)  
+si concurrieren en ygual grado los mjnjstros q(ue)  
+obtenga (y) se prefiera la election donde co(n)currie  
+ren la mayor parte de los diffinjdores (y) si en los  
+diffinjdores oviere paridad q(ue) obtenga (y) sea pre  
+ferida la election donde votare el presidente del  
+dicho capitulo, E sea hecho (y) çelebrado lo mas breue  
+mente (y) con toda paz (y) sosiego q(ue) ser pueda ponj  
+endo sobre ello sentencias (y) çensuras de excomu  
+njon (y) Sea en todo el dicho presidente obedesçido co  
+mo a perlado, (y) al tomar de los votos no este el pre  
+sidente presente, Saluo q(ue) entienda en q(ue) se çelebre el  
 
+### fol. 11r
+dicho capitulo en toda paz (y) sosiego (y) dure su officio  
+(y) poder fasta tanto q(ue) sea electo el dicho vissitador  
+mjnjstro general (y) en publicandose Su election  
+çese el poder del dicho presidente, (y) dende en adelan  
+te el dicho vissitador mjnjstro general como per  
+lado inmediato sea obedesçido por todos los dichos  
+presidente (y) diffinjdores (y) por toda la dicha orde(n)  
+(y) capitulo (y) sean cumplidos sus mandamjentos  
+in spiritualibus (y) temporalibus segu(n)d dicho es  
+E en la tal election del dicho perlado (y) ujssitador mj  
+njstro general çese toda manera de ambicion, (y)  
+cobdicia, (y) monjpodio (y) persuasion, (y) en todo aya  
+y preçeda sancta y Recta yntencion de manera q(ue)  
+no por pasion, amor nj afficion nj dadiuas nj pro  
+mesas nj por otra causa Respecto o contemplacio(n)  
+Sea elegido el tal vissitador mjnjstro general, (y) pre  
+sidente (y) diffinjdores (y) escriuano. Sobre lo qual  
+les encargamos las conciencias a los electores  
+(y) los q(ue) se fallaren dar uoto por soborno o hiziere(n)  
+monjpodio o a ello diere(n) conseJo fauor (y) ayuda  
+publica o ocultamente, la maldicio(n) de dios n(uest)ro  
+sen(n)or (y) de n(uest)ro padre sant françisco les alcançe el  
+dia del extremo Juycio den quenta estrecha a n(uest)ro  
+sen(n)or ihesu christo dello, (y) cayan en pena de priua  
+cion del tal officio (y) sea(n) inhabiles por diez an(n)os  
+para auer o tener otros (y) sean priuados de los  
+actos ligitimos por todo el dicho tiempo.  
+¶ Capitulo .v&deg;. de la submjssio(n) del vissitador general  
+
+### fol. 11v
+**Por que** el dicho vissitador mjnjstro ge  
+neral haga mas Justamente su oficio orde  
+namos establesçemos q(ue) durante el dicho  
+triennjo (y) todo el tiempo q(ue) se prorrogare segund  
+dicho es, si contra dios o contra la orden o sus bie  
+nes cometiere delicto. q(ue) el presidente (y) diffinjdo  
+res q(ue) fuero(n) del capitulo proximo pasado, en los ta  
+les dichos casos o en alguno dellos, lo puedan  
+corregir (y) castigar (y) si tales fueren sus exçessos  
+(y) delictos çerca de las cosas sobredichas. q(ue) pueda(n)  
+el dicho presidente (y) diffinjdores co(n)uocar a capi  
+tulo general en el qual visto sus demeritos, la  
+mayor parte del capitulo lo pueda priuar, prout  
+de Jure elegir otro en su lugar, segu(n)d (y) como se sue  
+le elegir (y) la dicha bulla lo dispone.  
+¶ Capitulo .vi&deg; de la election (y) confirmacion  
+de los mjnjstros (y) abbadessas  
+
+**Queriendo** nos conformar con la costu(n)  
+bre antigua de la dicha orden ordenamos  
+establesçemos q(ue) los mjnjstros y abbade  
+sas de cada casa y conuento de co(m)munjdad de  
+toda la dicha orden sean elegidos y puedan ser  
+Reelegidos de triennjo en triennjo por la mayor  
+parte de los votos de los tales conventos donde  
+oviere copia dellos (y) eligieren canonjca (y) sa(n)cta  
+mente (y) sea hecha por scrutinjo con Juramento  
+q(ue) hagan en mano del perlado (y) los electores eli  
+
+### fol. 12r
 
 
