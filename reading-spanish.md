@@ -1162,7 +1162,7 @@ los de comunjdad y en todo (y) por todo. (y) lo nes
 cessario a sus co(n)ciencias. y lo de mas tenga(n) Recur  
 so a los mjnjstros delas casas mas propinquas  
 do(n)de habitare(n) y alli sen subJectos y te(n)ga(n) obedie(n)cia  
-¶ Capitulo xiiijo del vestido de los biudos con  
+¶ Capitulo xiiij&deg; del vestido de los biudos con  
    tinentes y conJugados y otras personas  
    q(ue) biven en el siglo  
 **Los biudos** y co(n)tinentes y co(n)Jugados  
@@ -1257,7 +1257,7 @@ les de la dicha orde(n) mas çercano de ado(n)de fallescieren
 (y) si lo tomo en partes Remotas pertenezcan los ta  
 les bienes a la dicha casa de sancta maria del valle  
 cabeça de la dicha orden  
-¶ Capitulo xvio como todos los quatro estados  
+¶ Capitulo xvi&deg; como todos los quatro estados  
 an de prometer satisfacio(n) en cumplir las penj  
 tencias q(ue) les dieren (y) no pueda(n) pedir ante o  
 tro Juez sino ante el conservador (y) Juez a  
@@ -1332,7 +1332,7 @@ y tanbien todos los viernes del an(n)o, excepto si
 fuere fiesta doble o sanctos de la orde(n). como di  
 ze el psalmjta apprehendite disçiplinam ne  
 quando irascatur dominus  
-¶ Capitulo xviiio del officio divino (y) oracio(n)  
+¶ Capitulo xviii&deg; del officio divino (y) oracio(n)  
 (y) confession (y) silencio  
 **Todos** los frayles y monJas y herma  
 nos desta orden: guarden en la yglesia  
