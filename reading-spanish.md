@@ -1339,5 +1339,191 @@ nos desta orden: guarden en la yglesia
 silencio, especialmente quando Se çele  
 
 ### fol. 22v
+bra la mjssa (y) officio diujno (y) se propone el sermo(n)  
+ca como dize el evangelio el q(ue) es de dios oye la pa  
+labra de dios (y) en otra parte y la ponen por obra  
+y en otras partes guarden lo q(ue) por el vissitador ge  
+neral fuere ordenado açerca el silencio lo qual guar  
+den en el coro Refictorio (y) dormjtorio (y) claustra co  
+mo las sanctas constituciones desta sagrada Reli  
+gion lo dispone(n). y deue cada un Religioso en la tar  
+de de cada dia entre si pensar en dios (y) Retraydos  
+a la camara de sus co(n)ciencias piensen en el mal q(ue)  
+an hecho o pensado y pidan dello a dios perdon (y) Re  
+zen tres pater nostres co(n) sus aue marias por ello  
+como en penjtencia q(ue) ellos toman de su volu(n)tad  
+sin co(n)fessio(n) capues esta orden se llama de penjte(n)cia  
+aq(ue)llo deuen siempre pensar de manera q(ue) sean verda  
+deros penjtentes por q(ue) si por siete vias nos aparta  
+mos de dios por este sola venjmos (y) nos boluemos  
+a el (y) ansi nos avisa el evangelio diziendo Si aquj  
+no hizierdes Penjtencia peresçereys. los q(ue) estan  
+en sus monesterios deven cada dia los co(n)ue(n)tuales  
+oyr mjssa entera (y) los otros estados todos los  
+dias q(ue) la pudieren oyr co(m)modamente. y las mo(n)  
+Jas conventuales tengan co(n)tinuamente saçer  
+dote de su orde(n) si co(m)modamente lo pudieren te  
+ner q(ue) las oya de penjte(n)cia çelebre el diujno offi  
+cio (y) admjnjstre los sanctos sacramentos (y) les  
+de buen exemplo (y) doctrina. y todos aq(ue)llos q(ue) por  
+si saben el oficio diujno especialmente los profe  
+
+<p align="right">sos</p>
+
+### fol. 23r
+sos en sacro orden sean obligados a Rezar el offi  
+cio diujno segu(n)d la orden (y) modo de Rezar desta  
+sagrada orden de penjtencia co(n)forme al uso Roma  
+no Rezando las siete horas canonjcas en los mo  
+nesterios se canten segud se acostunbran. E los  
+otros q(ue) no lo saben digan doze pater nostres co(n)  
+sus aue marias por maytines, (y) por qualqujer o  
+tra hora del dia siete. an(n)adiendo gloria patri en fin  
+de cada un pater noster. E a prima (y) a complecto  
+rio digan el credo. E las q(ue) qujsiere(n) (y) lo supieren di  
+gan el psalmo de mjsserere mei deus a la prima. (y)  
+sean obligados a confesarle (y) Resçebir el sancto  
+sacramento tres vezes cada an(n)o conviene a saber  
+las pascuas del nasçimjento y Ressurrectio(n) (y) pen  
+thecostes. E los q(ue) mas en esto se exerçitare(n) se mos  
+trara en ellos mas heruor de deuocion en el amor  
+(y) serujcio de dios. lo qual siempre hagan con los  
+propios saçerdotes de su orden y no con otros.  
+saluo en caso de extrema nesçessidad co(n) liçencia  
+de su perlado. (y) si contra esto tuvieren facultad  
+apostolica, q(ue) no puedan vsar della sin liçencia  
+del vissitador mjnjstro general. Pero los que estu  
+vieren en el siglo no aujendo saçerdote de su orden  
+en las partes do morare(n) puedan co(n)fessar se con  
+los curas y elegir co(n)ffesor sufficiente para ello  
+(y) Resçebir de su mano la co(m)munjon segun dicho  
+es E ayan de los tales confessores çedulas q(ue) ha  
+gan fe como cumplen cada an(n)o las dichas con  
+
+### fol. 23v
+fessiones (y) Resciben el sanctissimo sacramen  
+to para q(ue) con ellas den quenta al perlado de la  
+orden como cu(m)ple(n) lo co(n)tenjdo en este capitulo  
+¶ Capitulo .xix. de los predicadores (y) confesso  
+res (y) q(ue) njnguno Resçiba orden sacro sin liçen  
+cia del vissitador mjnjstro general de la dicha orde(n)  
+**Mandamos** y exortamos y  
+prohibimos q(ue)  
+njngun frayle sea osado apredicar al  
+pueblo sin q(ue) primero aya sido examj  
+nado en capitulo general por el vissitador mjnjs  
+tro general o aquj en lo co(m)metiere, (y) lo aya apro  
+uado (y) dado por sufficiente (y) ydoneo. y del dicho  
+vissitador mjnjstro general le sea conçedido el  
+dicho officio de la predicacio(n) por expresa liçen  
+cia. Amonestamos y exortamos a los mesmos  
+frayles predicadores q(ue) en la predicacion q(ue) al pue  
+blo hizieren sean sus hablas dellos examjnadas  
+(y) castas a la vtilidad (y) Rehedificacion del pue  
+blo anunciando (y) declarando los vicios (y) vir  
+tudes pena (y) gloria co(n) breuedad de sermon ca  
+el sen(n)or abreujada palabra dixo sobre la tierra  
+y tanbien los sacerdotes njnguno confiesse nj  
+oya de penjtencia sin q(ue) primero sea examjnado  
+por el vissitador mjnjstro general de la dicha or  
+den y con su liçencia o de qujen su poder expreso  
+para ello tenga (y) le conçediere liçencia para  
+exercitar el dicho officio, y le aprueue por y do  
+
+### fol. 24r
+neo y sufficiente. y q(ue) ninguno se pueda orde  
+nar de orden sacro sino fuere visto (y) examjnado  
+por el vissitador mjnjstro general de la dicha or  
+den o co(n) su liçencia o de qujen su poder expre  
+so para ello tuviere (y) q(ue) njngu(n) mjnjstro nj per  
+lado inferior no pueda dar Reuerendas para  
+njngun orde(n) sacro, sino fuere el Reuere(n)dissimo  
+padre vissitador mjnjstro general desta orden  
+¶ Capitulo .xx. de la manera de la co(n)versaçio(n)  
+**Deuen** todos los frayles y monJas  
+evitar (y) apartar toda manera de  
+enoJo (y) Rencor vnos co(n) otros y de  
+todas otras gentes y al modo y manera de pe  
+njtentes deuen sus obras corresponder pues  
+la orde(n) y estado es de penjtencia. en tal manera  
+q(ue) aparten de si toda yra odio y mal q(ue)rencia.  
+y como alguno estuujere ayrado de otro, los  
+otros procure(n) de poner paz (y) sosiego (y) q(ue) se  
+Reco(n)çilien (y) amen vnos a otros de buena vo  
+luntad q(ue) an si nos lo amonesta el sen(n)or en el  
+sancto euangelio diziendo, Este es mj preçep  
+to q(ue) os ameys como yo os ame. E deuen huyr  
+las cortes (y) lugares do estan prinçipes y sen(n)ores  
+y do estan gentes de palacio y Juegos y fiestas  
+y truhanes y RegoziJos y vanjdades del mundo  
+como el apostol dize tardos a hablar y prestos  
+a callar dexando toda yra, E deuen ser templa  
+dos en sus hablas y palabras porq(ue) de hablar  
+
+### fol. 24v
+mucho Jamas se saca buen exemplo. Sobre todo  
+deuen ser muy ve\r/daderos (y) huyr de todas men  
+tiras y de toda manera de Juramentos qualles  
+qujer. saluo por la paz y fe (y) por dar testimonjo  
+de la verdad y para confirmacion de algu(n) co(n)trato  
+y negocios nesçesarios a la orde(n) como nos mues  
+tra el evangelio q(ue) dize q(ue) n(uest)ra palabra sea si por si  
+(y) no por no  
+¶ Capitulo .xxi. de la vissitacion de los henfer  
+mos (y) officio de los muertos  
+**Los** frayles y monJas q(ue) biuen cole  
+gialmente deuen curar (y) vissitar al q(ue)  
+estuviere enfermo y con toda begnj  
+njdad procurarle salud y darle lo nesçesario  
+del conuento para ello amonestando lo el mj  
+njstro o abbadesa a sus vicarios a q(ue) luego en  
+dando le el mal al prinçipio se confiese (y) haga  
+penjtencia y Resçiba el sancto sacramento co  
+mo dize el euangelio, velad y orad q(ue) no sabe  
+is el dia nj la hora. E trayendo le a la memoria  
+el parayso y el ynfierno y la muerte y unjuer  
+sal Juyzio donde auemos de dar cuenta y Ra  
+zo(n) de nuestras obras y diziendo le las otras  
+cosas q(ue) le mueuen a esfuerço (y) deuocio(n), E lo q(ue)  
+mas conujene para lo enderesçar en el camjno  
+de la gloria tratando los co(n) charidad (y) amor (y)  
+como algun frayle o monJa moriere de los co(n)  
+ventuales deve el mjnjstro o abbadessa de cada  
+
+### fol. 25r
+convento çelebrarle sus obsequjas a las qualles  
+esten presentes todos los de la tal casa, y no se abse(n)  
+ten fasta q(ue) el cuerpo este enterrado (y) los sacerdotes  
+todos celebren el dia del entierro por su anjma. y  
+dentro de nueve dias cada saçerdote le diga una mj  
+sa (y) los otros frayles y monJas q(ue) saben el psalterio  
+çincuenta psalmos. y los que no saben psalmos, çin  
+quenta pater nostres, y en fin de cada vno digan  
+Requjem eternam, y dentro de un an(n)o cada sa  
+çerdote diga tres mjssas por las anjmas de todos  
+los defunctos de la dicha orden (y) los q(ue) saben el psal  
+terio y las monJas q(ue) lo saben digan vn psalterio (y)  
+las q(ue) no lo saben digan çient pater nostres co(n) sus  
+aue marias co(n) Requjem eternam en fin de cada  
+vno, (y) aya vigilancia y estudio en cada co(n)vento  
+q(ue) se haga ansi. En los otros estados mandamos  
+establesçemos q(ue) donde ocurriere el enfermo o  
+el muerto q(ue) lo vissiten (y) esten a su entierro (y) Re  
+zen lo q(ue) dicho es de suso por sus anjmas (y) por los  
+defuntos Como la Regla del njcholao se lo manda  
+entendiese q(ue) los de co(m)munjdad como fallesciere  
+frayle o monJa q(ue) cada conuento de Religiosos  
+(y) Religiosas en sabiendo lo hagan la mjsmas  
+obsequjas q(ue) se mandan hazer en el conuento  
+do finare el tal frayle o monJa como dicho es en  
+este capitulo. y el perlado lo mas presto q(ue) pudie  
+re de noticia del tal fallescimjento a los conue(n)tos  
+para q(ue) en breue tiempo se çelebren las dichas obse  
+
+### fol. 25v
+
+
+
+
 
 
