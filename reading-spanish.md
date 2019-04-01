@@ -492,6 +492,102 @@ co(n) las bulas (y) letras apostolicas a la dicha or
 de(n) co(n)çessas. (y) porq(ue) njnguna cosa q(ue) se mueua o RiJa  
 
 ### fol. 8v
+puede ser bien Regida (y) gouernada (y) movida: si  
+de un prinçipio y causa principal no se goujerna  
+y encamjna. Ordenamos establesçemos q(ue) de a  
+quj adelante para siempre Jamas aya vn vissitador  
+mjnjstro general en esta sagrada orde(n) (y) Religion:  
+profeso (y) saçerdote della. q(ue) sea primera (y) prinçipal  
+caussa de ella. Sen(n)or (y) gouernador en la dicha orden de  
+penjtencia de frayles y monJas (y) Religiossas (y) perso  
+nas de todos los dichos quatro estados. en tal manera  
+q(ue) el sea cabeça y ellos mjenbros ansi como el padre  
+co(n) los hiJos. (y) como el padre ama los hiJos (y) en el  
+puso neçesitatiuo amor: ansi en al vissitador mjnjs  
+tro general aya (y) se falle amor desigual en amar Re  
+gir (y) gouernar sus subditos (y) hiJos (y) Religiossos.  
+(y) como n(uest)ro sen(n)or puso yugo de obediencia en el  
+hiJo para q(ue) amase al padre: y ansi los tales Religio  
+sos de los dichos estados (y) otras personas de la di  
+cha orde(n) tengan sobre si este verdadero yugo de obe  
+diencia para perfectamente obedesçer al dicho vissi  
+tador mjnjstro general: su verdadero perlado (y) padre  
+espiritual. al qual todos tengan obediencia (y) Reue  
+rencia. acordandose les (y) tenjendo co(n)tinuamente  
+puesto en su memoria: Como la obediencia es de  
+mayor efficacia q(ue) el sacrifficio. porq(ue) el verdadero  
+humjlde sacrifica a si (y) a sus obras. negando su pro  
+pria voluntad por la qual los honbres mas meres  
+çen. tomando exemplo de n(uest)ro Redemptor jesu chris  
+to: q(ue) dixo a sus disçipulos en no(n)bre de todos. Aprende  
+de mj q(ue) soy manso (y) humjlde de coraço(n). de manera  
+q(ue) lo q(ue) mas les encargamos (y) mandamos q(ue) sean:  
+
+\[.muy.\]
+
+### fol. 9r
+muy subJectos al dicho padre vissitador mjnjstro  
+general todos los dichos estados (y) personas de la di  
+cha orde(n). E al dicho vissitador mjnjstro general per  
+tenezca la vissitacion Reformacion correction  
+punjcion (y) castigo por si (y) sus co(m)mjssarios vissita  
+dores de todos los dichos quatro estados (y) a cada  
+vno dellos (y) de otras personas quallesqujer de  
+la dicha orden. E pueda proçeder a los corregir (y) cas  
+tigar (y) Reformar proçediendo co(n)tra ellos a deposi  
+cion perpetua o temporal encarçeracion (y) en otras  
+penas (y) çensuras (y) sentencias de excomunjon ma  
+yor o menor (y) inhabilitarlos (y) habilitarlos (y) ab  
+soluerlos atenta la calidad de sus de meritos (y) deli  
+ctos (y) de todos (y) en todo (y) por todo sea obedesçido  
+como su verdadero perlado (y) pastor y padre inme  
+diato a la sancta sede apostolica. E proçeda ansi  
+mesmo contra todos aq(ue)llos q(ue) estuvieren o andu  
+vieren fuera de su obediencia para los hazer tomar  
+y Reduzir a ella. E le pertenezca ansi mesmo lago  
+vernacion (y) admjnjstracion de sus personas (y) bie  
+nes (y) casas (y) monesterios (y) conventos de toda la   
+dicha orden en lo espiritual y temporal como a  
+verdadero perlado inmediato. (y) huse el vissitador  
+mjnjstro general de toda la superioridad (y) Jurisdi  
+cion (y) mando (y) sen(n)orio (y) poder q(ue) husan los otros  
+perlados (y) mjnjstros generales de las ordenes me(n)  
+dicantes como en la dicha bulla se contiene. y q(ue)re  
+mos q(ue) su poder sea tan cunplido y extenso, q(ue) en to  
+
+### fol. 9v
+do lo q(ue) dispusiere y ordenare (y) mandare ansi en  
+vissitaciones como en correctiones electiones (y)  
+confirmaciones (y) distinciones mandamjentos  
+(y) preçeptos sea obtemperado (y) complido (y) aq(ue)llo se  
+a (y) aya su deujdo effecto segu(n)d su dispusicion aunq(ue)  
+contenga todo o parte dello por el mandado dispu  
+sicion contra Reglas expresas por el derecho co(m)mu(n)  
+porq(ue) como a sen(n)or (y) superior perlado confiando de  
+su authoridad se haze (y) se le da en todo (y) por todo  
+general admjnjstracion (y) cunplido poder  
+
+¶ Capitulo .iiij&deg;. de la electio(n) del Reuerendissimo  
+padre vissitador mjnjstro general (y) de la cele  
+bracion del capitulo  
+
+**Ordenamos** statuymos fucturis  
+successiue temporibus inperpectuum de tri  
+ennjo en triennjo sea elegido el dicho vissita  
+dor mjnjstro general en toda la dicha orden de penj  
+tencia q(ue) sea como dicho es saçerdote professo della  
+(y) q(ue) su officio tan solamente dure por aq(ue)l triennjo  
+en q(ue) fuere elegido. Saluo si torna a ser por otro o  
+otros triennjos Reelegido successiue. Pero per  
+mjttimos establesçemos q(ue) si el dicho vissitador  
+mjnjstro general estuviere en corte Romana ab  
+sente por negocios de la orden q(ue) pueda prorogar  
+su officio de ujssitador por espacio de un an(n)o. (y) si  
+estuviere en corte Real por medio an(n)o (y) si estuvi  
+ere impedido de algun Justo impedimento, o  
+
+### fol. 10r
+
 
 
 
