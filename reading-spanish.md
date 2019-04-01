@@ -1368,7 +1368,7 @@ cio (y) admjnjstre los sanctos sacramentos (y) les
 de buen exemplo (y) doctrina. y todos aq(ue)llos q(ue) por  
 si saben el oficio diujno especialmente los profe  
 
-<p align="right">sos</p>
+<p align="right">[sos]</p>
 
 ### fol. 23r
 sos en sacro orden sean obligados a Rezar el offi  
@@ -1521,6 +1521,128 @@ re de noticia del tal fallescimjento a los conue(n)tos
 para q(ue) en breue tiempo se çelebren las dichas obse  
 
 ### fol. 25v
+qujas para q(ue) los defunctos Resçiban descanso  
+¶ Capitulo .xxii. de la prohibicion de las a\r/mas  
+
+**Ningun** Religiosso de todos quatro  
+estados trayga armas de pelea saluo  
+por defension de la yglesia (y) de la fe chris  
+tiana (y) tierra sancta o camjnando co(n) li  
+çencia del vissitador mjnjstro general o de sus mj  
+njstros esto se entiende para los q(ue) biue(n) en el siglo  
+¶ Capitulo .xxiii. de la manera del testar  
+
+**Todos** aq(ue)llos q(ue) de derecho tuvieren  
+facultad de testar fagan sus testame(n)  
+tos (y) dispongan (y) ordenen de sus bienes  
+dentro de tres meses primeros sigujentes despues  
+de su entrada de manera q(ue) no mura(n) sin testamento  
+¶ Capitulo .xxiiii&deg;. de las monJas q(ue) se qujsieren  
+enzerrar so clausura  
+
+**Por** quanto es de mas perfection y  
+meresçimjento delante nuestro  
+sen(n)or la persona q(ue) mas se enzierra (y)  
+aparta del siglo para le serujr. Establesçemos y  
+ordenamos q(ue) si algun monesterio o moneste  
+rios de monJas de la dicha Religion se qujsiere(n)  
+enzerrar (y) biuir so clausura (y) estar (y) biujr en  
+ella prometiendo el voto della q(ue) lo pudan hazer  
+de consentimjento del vissitador mjnjstro ge  
+neral (y) aun q(ue) no lo prometan si en la dicha clau  
+sura començaren q(ue) perseueren en ella. Con tanto  
+
+### fol. 26r
+q(ue) q(ue)de Reseruado al paresçer del uissitador minis  
+tro general q(ue) alguna monJa o monJas ansi en  
+zerradas si por enfermedad o Reformaçion de o  
+tra casa o para ser Reformadas o porq(ue) las q(ui)e  
+ra mudar por alguna Justa causa q(ue) lo pueda hazer  
+como le paresciere (y) las pueda sacar (y) lleuar de alli  
+a otro monesterio o monesterios. lo qual sola  
+mente haga el vissitador ministro general o a  
+quel aqujen para ello diere expresso poder (y)  
+facultad. (y) les encargamos las conciencias q(ue) lo  
+prouean como conuenga al bien de la Religion  
+(y) saluacion de las animas  
+¶ Capitulo .xxv. q(ue) el vissitador ministro general  
+puede dispensar sobre las asperezas (y) vestidos.  
+(y) Regla (y) cosas de la dicha orden  
+**Establesçemos** y orde  
+namos Conformando nos con los pre  
+uilegios y bulas sobre dichas q(ue) el di  
+cho padre vissitador mjnistro general pueda  
+dispensar (y) dispense en los ayunos asperezas  
+(y) en vestidos (y) Regla (y) cosas q(ue) traxeren de la  
+dicha orde(n) conforme a los estados y personas  
+della como le paresciere. Con tanto q(ue) los de co(m)  
+munidad en lo exterior anden conformes co  
+mo dicho es en tal manera q(ue) todo sea hecho y en  
+deresçado a humildad y seruiçio de dios. y este  
+habito traygan los dias de su vida (y) se entierre(n) en el  
+
+### fol. 26v
+¶ Capitulo .xxvi. como an de guardar los se  
+cretos de la orden. E q(ue) ninguno tenga atreui  
+mjento a abrir ca\r/tas del perlado  
+**O**tro si establesçemos (y) mandamos q(ue) ni(n)  
+gu(n) Religioso ni Religiosa de los quatro  
+estados sobredichos (y) personas de la or  
+den no pueden dezir ni digan por palabras ni  
+carta ni sen(n)as, las flaq(ue)zas y secretos (y) cosas q(ue)  
+en la orden pasan ansi del perlado prinçipal co  
+mo de otros sus inferiores ni las cosas q(ue) pasan  
+en sus visitaciones y capitulos y co(n)uentos (y) fue  
+ra dellos (y) ansi mesmo quando quiera q(ue) un Re  
+ligioso o Religiosa fuere corregido (y) castigado:  
+por el perlado o su ministro o abbadesa: ningu  
+na persona de la dicha orden de mas de no lo des  
+cubrir, no sea osado de ge lo Replicar ni Repe  
+tir ni darle co(n) ello en Rostro. so pena de ser  
+castigado co(n) el doblo de la penitencia q(ue) a la par  
+te Reprehendida fue dada. y este en la carçel los  
+dias q(ue) el perlado o perlada le mandare (y) pida  
+perdon a la persona contra quien se movio en  
+las tales palabras (y) si las palabras fueren muy  
+desonestas (y) inJuriosas sean castigados. quia  
+per que quis peccat perea punietur. E ansi mes  
+mo establesçemos y mandamos q(ue) ningu(n) Re  
+ligioso ni Religiosa ni persona desta sagrada  
+orden de penitencia no puedan abrir ni abran  
+cartas del Reuerendissimo padre uissitador  
+
+### fol. 27r
+ministro general. ni carta ni cartas q(ue) para su  
+Reuerendissima paternidad vayan (y) les sean  
+luego ymbiadas. ni las tales ni otros sus ma(n)  
+damjentos del dicho perlado no sean detenjdos  
+por njnguna manera de la hora q(ue) pudieren ser  
+dadas a las personas para quien son (y) para  
+el dicho perlado. so pena de medio an(n)o de carçel  
+(y) priuacion de los actos legittimos y mas  
+lo q(ue) el derecho les obliga. E en lo mesmo yn cu  
+rre quien descubre los secretos de la orden co  
+mo dicho es. el qual caso es Reseruado al dicho  
+visitador ministro general susodicho  
+¶ Capitulo .xxvii. q(ue) anden los frayles aconpa  
+n(n)ados de dos en dos (y) q(ue) ninguno ande sin li  
+cencia. E q(ue) pena sea de dar, al q(ue) anduviere apos  
+tata (y) vaga(n)do  
+**Otro** si ordenamos y mandamos q(ue)  
+los frayles y Religiosos de co(m)mu  
+nidad trabaJen por yr, de dos en dos, a  
+los pueblos, ca como escriue sant lucas en el  
+capitulo dezimo: Sen(n)alo el sen(n)or otros sete(n)ta  
+y dos et missit illos binos ante faciem suam.  
+los q(ue) anduvieren vagando sin liçençia del per  
+lado q(ue) la deuan auer (y) obtener. tanto esten en  
+la carçel de su monesterio quanto tiempo an  
+duvieren apostatando o en la carçel de sancta  
+pia en el monesterio de sancta maria del valle:  
+cabeça de la orden, donde los q(ue) ansi anduvieren  
+
+### fol. 27v
+
 
 
 
