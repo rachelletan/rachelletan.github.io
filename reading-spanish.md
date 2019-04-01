@@ -523,7 +523,7 @@ to: q(ue) dixo a sus disçipulos en no(n)bre de todos. Aprende
 de mj q(ue) soy manso (y) humjlde de coraço(n). de manera  
 q(ue) lo q(ue) mas les encargamos (y) mandamos q(ue) sean:  
 
-<p align = "right">\[.muy.\]</p>
+<p align = "right">[.muy.]</p>
 
 ### fol. 9r
 muy subJectos al dicho padre vissitador mjnjstro  
@@ -707,5 +707,244 @@ mente (y) sea hecha por scrutinjo con Juramento
 q(ue) hagan en mano del perlado (y) los electores eli  
 
 ### fol. 12r
+giran so cargo del Juramento aqujen meJor les  
+paresciere para el dicho cargo (y) mas sufficiente   
+fuere. la qual election a de tomar el dicho perla  
+do como es costunbre en esta dicha orden de pe  
+njtencia, (y) si oviere paridad, sea preferida la e  
+lection do concurrieren los mas ancianos, y si  
+en esto oviere paridad eliga el perlado la persona  
+de los electos q(ue) le paresciere q(ue) es mas neçesaria   
+para el dicho cargo, y a el le pertenezca la confir  
+macion de los tales officios o a qujen su poder  
+espicial para ello oviere, (y) sea fecha la dicha ele  
+cion çesando todas las cautelas (y) formas (y) mo  
+njpodios (y) cobdicias. E al mjnjstro o abbadesa  
+o otro qualqujer Religioso o Religiosa q(ue) en esto   
+fuere hallado publica o secretamente (y) officio  
+alguno procurare para si o para otro, incurra  
+en las penas declaradas en el capitulo q(ue) habla  
+de la election del vissitador general (y) en la bulla  
+ad uberes fructus contenjdas. E si por caso no  
+se conformaren o no fuere hecha la dicha electio(n)  
+canonjca (y) Justamente o al perlado le parezca q(ue)  
+la election (y) votos q(ue) se dieron, no fueron en fa  
+uor de persona a sufficiente para lo q(ue) conviene  
+al serujcio de dios (y) al bien de la casa, q(ue) en tal ca  
+so al dicho vissitador pertenezca la election del  
+tal mjnjstro o abbadesa. E le encargamos la co(n)  
+ciencia al dicho vissitador (y) a sus comjsarios vi  
+sitadores para ello diputados por el. q(ue) eligan la  
+
+### fol. 12v
+persona q(ue) mejor les paresciere (y) vieren ser mas  
+util y prouechoso para el serujcio de dios (y) buena  
+gouernacion del tal convento. E donde no ovie  
+re copia de Religiosos o Religiosas q(ue) el dicho vi  
+sitador lo prouea (y) eliga aqujen le paresciere q(ue)  
+es sufficiente para el tal cargo, (y) en todo lo sobre  
+dicho tenga el dicho vissitador mjnjstro general  
+entero poder (y) facultad (y) aq(ue)l q(ue) los otros perla  
+dos de las otras ordenes mendicantes tienen  
+para todo lo proueer (y) fazer como les paresciere   
+como en la dicha bulla se contiene. Otro si orde  
+namos q(ue) si conplido el triennjo de mjnjstro o ab  
+badesa el general vissitador o qujen su poder o  
+viere para co(m)mjssario no pudiere tan presto yr  
+a visitar el tal monesterio a hazer election de mj  
+njstro o abbadesa establesçemos, declaramos q(ue)  
+los dichos officios de mjnjstro o abbadesa no çese(n)  
+nj sean vistos çesar nj vacar fasta q(ue) el perlado les  
+vaya a tomar cuenta, (y) Renu(n)cie el dicho officio en  
+sus manos del tal convento do fuere perlado, (y)  
+al dicho vissitador mjnjstro general pertenezca  
+la asignacion de los frayles y monJas (y) personas   
+q(ue) ovieren de morar en los conuentos dela dicha or  
+den (y) por de meritos o mal governado pueda pri  
+var los tales mjnjstros o abbadesas (y) officiales (y)  
+elegir otros de nuevo en sus officios (y) cargos (y) mu  
+darlos frayles y monJas (y) abbadesas de un co(n)ven  
+to a otro segund le paresciere q(ue) co(n)viene al bien de  
+
+### fol. 13r
+sus anjmas (y) paz (y) sosiego (y) conseruacion de la  
+orde(n) segu(n)d de suso se contiene (y) pueda proçeder  
+contra todos en todos los casos delictos (y) exçesos  
+como le paresciere. (y) si alguno fuere hallado ser  
+notado del crimen de la heregia, proçeda ansi mes  
+mo co(n)tra el como meJor aya lugar de derecho en  
+tal manera q(ue) en la mesma Religion haga penj  
+tencia (y) sea punjdo segu(n)d su delicto. (y) quanto  
+a lo q(ue) en este capitulo dize de los mjnjstros (y)  
+abbadesas q(ue) puedan ser Reelegidos. por algu  
+nas causas q(ue) nos mueven declaramos (y) orde  
+namos q(ue) aviendo en el tal convento o conven  
+tos do se hiziere electio(n), persona o personas habi  
+les (y) sufficientes para mjnjstro o abbadesa q(ue) en  
+tal caso por aq(ue)l triennjo no pueda(n) successiue  
+los dichos mjnjstros o abbadesas q(ue) a la sazon an  
+sido, ser Reelegidos en los tales co(n)ventos do an si  
+do aq(ue)l triennjo pasado perlados, saluo en caso de  
+nesçesidad de personas como dicho es. pero para  
+otro conuento pueda(n) ser elegidos (y) elegidas. lo  
+qual todo el padre vissitador mjnjstro general  
+vea (y) provea como mas conuenga al serujcio de  
+dios (y) bien de los tales co(n)ventos ansi en confir  
+mar como otro de nueuo poner, tenjendo para  
+todo general admjnjstracion.  
+¶ Capitulo .vij. del no(n)bramjento de los vicarios  
+        (y) vicarias de los co(n)ve(n)tos  
+**Establesçemos** (y) ordenamos q(ue) en los  
+
+### fol. 13v
+dichos monesterios (y) conventos pertenezca al  
+mjnjstro (y) abbadesa de cada conuento nonbrar  
+vicario o vicaria para el su triennjo para q(ue) le ayu  
+de aleuar la carga de su officio. y el tal vissitador  
+general açepte (y) Resçiba el tal nonbramjento.  
+saluo si por alguna causa Razonable otra co  
+sa le paresciese. q(ue) en tal caso, por bien (y) paz (y) sosie  
+go pueda elegir otro vicario o vicaria con acuer  
+do de algunos frayles o monJas del tal conuento  
+(y) los mayordomos, procuradores, (y) proujsoras,  
+(y) sacristanas (y) porteras (y) otros officios de los   
+conuentos se pongan en co(n)formjdad del gene  
+ral vissitador (y) de los mjnjstros (y) abbadessas (y)  
+co(n) conseJo de los discretos (y) discretas de las di  
+chas casas. y en ello el perlado prouea como  
+conviene al serujcio de dios y biem de las co(m)  
+munjdades.  
+¶ Capitulo .viij&deg;. de la constitucio(n) (y) poder de  
+los vissitadores co(m)mjssarios, ansi vissitador  
+      general como provinciales.  
+**Item** por quanto el dicho vissitador mj  
+njstro general ansi por jmpedimentos de  
+enfermedad como por absencia, como por  
+ser muchas las casas de su cargo (y) admjnjstra  
+cion, no podra buenamente por si mesmo visi  
+tar (y) fazer lo q(ue) conujene a la buena admjnjs  
+tracion (y) gouernacion de su officio. y tiene, nes  
+çesidad de personas q(ue) en ello le ayuden, por ta(n)to  
+
+### fol. 14r
+Establesçemos (y) ordenamos q(ue) de aquj adela(n)te  
+imperpetuu(m) pueda nonbrar (y) elegir uno o dos  
+o mas co(m)mjssarios vissitadores proujnciales, (y)   
+un co(m)mjssario general, q(ue) sean desta orde(n) (y) profe  
+sion para ello, (y) aq(ue)llos Reuocar (y) hazer otros de  
+nueuo quantas vezes qujsiere durante el tiempo  
+de su triennjo (y) q(ue) la tal sustitucion (y) poder no  
+pueda durar mas de por el tiempo de su triennjo  
+los qualles co(m)mjssarios husen de aq(ue)lla co(m)mjssio(n)  
+(y) poder especial o general q(ue) les diere (y) no mas (y)  
+el q(ue) a mas se estendiere q(ue) no valga lo q(ue) hiziere, (y)  
+por ello sea castigado. y ala orden lo q(ue) hiziere no le  
+pare perJuycio.  
+¶ Capitulo .ix&deg;. de la manera del vissitador.
+
+**Estatuymos** (y) ordenamos q(ue) el dicho  
+vissitador mjnjstro general o sus co(m)mjssa  
+rios procuradores, por el para ello diputa  
+dos por tiempo. vissiten en cada un an(n)o vna vez  
+todos los monesterios de frayles (y) monJas de e  
+llos si lo pudieren hazer, (y) personas de la dicha  
+orden (y) se haga la vissitacion como es costunbre  
+(y) si oujere nesçesidad de vissitar mas vezes lo  
+pueda hazer. la qual vissitacion, sea hecha en  
+parte honesta (y) sin sospecha. (y) a su vissitacion,  
+no deuen entrar en las partes secretas (y) clau  
+sura del convento de monJas (y) no este solo con  
+alguna monJa, saluo en lugares publicos, (y)  
+
+### fol. 14v
+honestos (y) sin sospecha. en la qual vissitacion los  
+mjnjstros (y) abbadesas Respectiue denuncie(n) al  
+vissitador las magnjfiestas culpas de sus fray  
+les y monJas. ansi mesmo los unos de los otros  
+para q(ue) los pugna (y) castigue, (y) si alguno fuere ha  
+llado jncorregible despues de auer sido por otras  
+vezes amonestado o por algun espacio (y) interua  
+lo de dias, sea denunciado al dicho vissitador gene  
+ral, el qual co(n) consejo de los mas ancianos de los  
+tales conuentos, los castigue (y) pugna como le pa  
+resciere, encarçelando los perpetuo vel ad temp(us)  
+(y) si tal fuere su delicto (y) exçesso (y) fuere incorregi  
+ble, meresciendo lo si delicto, los alançe del todo  
+de la dicha Religio(n) (y) orde(n), qujtandole el habito   
+como sino oviera sido hiJo della, por q(ue) no se per  
+mjta frayle nj monJa en la dicha orden q(ue) la dis  
+fame (y) sea jncorregible. y se eviten y corten della   
+los semeJantes palmjtes noçiuos y scandalo  
+sos (y) sin fructo. como el sancto evangelio dize,  
+todo arbol q(ue) no haze fructo cortarlo y hecharlo en  
+el fuego.  
+¶ capitulo .x&deg;. del modo q(ue) sea de tener en la Reçep  
+cio(n) de los novicios (y) calidades co(n) q(ue) se ha(n) de Rescebir.  
+**Conformando nos** con la costu(n)  
+bre loable, y antiqujssima de la dicha or  
+den, (y) co(n) n(uest)ros preujlegios (y) bullas (y) bre  
+ues apostolicos. por quanto el Reuerendissimo  
+
+### fol. 15r
+padre vissitador mjnjstro general como verdade  
+ro perlado (y) pastor a de andar vigilante en las cosas   
+de la dicha orden pertenescientes (y) co(n)venjentes. (y)  
+njnguna cosa deue ser hecha en ella sin su authori  
+dad del (y) consentimjento, ca como el cuangelio  
+dize, el buen pastor conosçe sus ovejas y ellas le  
+conoçen a el y pone la vida por ellas. Por tanto  
+Establesçemos y ordenamos q(ue) de aquj adelante   
+para siempre jamas, njnguna persona de njngu(n)d  
+estado pueda ser, nj sea admjttido nj Resçebido, a la  
+dicha orden (y) Religion, nj le sea dado habito nj pro  
+phesion sino por su mano del dicho vissitador gene  
+ral o de qujen para ello el nonbrare (y) diputare co(n)  
+tanto q(ue) sea de su orden. el q(ue) de otra manera (y) por   
+otras personas fuere Resçebido o tomare el ha  
+bito o prophesion q(ue) por njngu(n) modo sea nj pue  
+da ser aligado a la dicha orden nj sea aujdo por del  
+numero (y) con sorcio della. nj goze de los priujle  
+gios ese(m)pciones nj de cosa della antes sea aujdo  
+por persona priuada (y) q(ue) en la dicha orden no tie  
+ne entrada nj salida nj pueda tener el habito de  
+ella conforme a las bullas apostolicas q(ue) lo pro  
+hiben, (y) todos los frayles y monJas y personas q(ue)  
+an de ser Resçebidos a la dicha sagrada orden (y) Re  
+ligion de todos los dichos quatro estados (y) otras  
+personas della, an de ser primero ynterrogados, si  
+vienen a ella de su buena voluntad o por premja  
+o persuasion de alguno, (y) a de ser fecha primero,  
+
+### fol. 15v
+diligente examjnación de su fama, ca de venser  
+fieles (y) catholicos christianos de heregia no sos  
+pechosos firmes en la obediencia de la yglesia  
+Romana (y) no ligados con algu(n) vinculo q(ue) ynpi  
+da la Reçepcio(n) del habito (y) Religion de la dicha  
+sagrada orden. (y) los q(ue) an de ser Reçebidos para  
+biujr en colegios (y) hermjtas deuen ser sanos  
+del cuerpo, (y) njnguno de qualqujer estado de los  
+sobredichos a de ser infamado de njnguna a vul  
+gar jnfamja. E primero sea Reco(n)çiliado co(n) los   
+proximos, (y) si estuviere satisfecho el vissitador  
+general, (y) sus conventos de la buena fama, (y)  
+persona del q(ue) vinjere a entrar en la dicha orde(n)  
+(y) q(ue) es tal q(ue) deua ser Resçebido en ella, deue sele   
+dezir la vida (y) asperezas della para ver si le plaze  
+entrar en ella (y) perseuerar y si le fallaren firme  
+(y) q(ue) toda via qujere ser hermano y Religioso, (y)  
+q(ue) por inspiracion diujna viene, y qujere despre  
+ciando el mundo tomar estado de vida y guar  
+dar la dicha Regla y en esta Religion serujr, a  
+dios, le de el habito, y lo Resçiba (y) este, en los co  
+legios (y) monesterios de la dicha orden, de liçe(n)  
+cia del dicho vissitador general o de sus co(m)mjsari  
+os, biuiendo so su Regla (y) disçiplina, (y) despues  
+de un an(n)o (y) dia primeros sigujentes q(ue) oviere  
+traydo el dicho habito sea preguntado por el vi  
+sitador general, o por sus co(m)mjssarios, si qujere  
+fazer profession en la dicha orden (y) Religion.  
+
+### fol. 16r
 
 
