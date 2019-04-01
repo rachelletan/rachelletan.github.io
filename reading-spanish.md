@@ -363,5 +363,135 @@ nentes, conJugados (y) personas del siglo
 desta sagrada orde(n) de penjtençia de la Regular obserua(n)çia:  
 
 ### fol. 6v
+**Primeramente** orde  
+namos (y) establesçemos (y) declaramos q(ue)  
+en esta sagrada orden de penjtençia: aya qua  
+tro estados (y) differençias (y) maneras de Religiossos.  
+Como dize el euangelio: en la casa de mj padre ay  
+muchas moradas. y sea en este modo. q(ue) el primero (y)  
+principal (y) mas perfecto estado sera de los frayles  
+y monJas q(ue) biuen en casas y co(n)uentos colegial  
+mente prometiendo los tres votos essemçiales, co(n)  
+viene a saber obediençia, castidad, y pobreza en par  
+ticular. los quales votos prometeran de aquj adela(n)  
+te. y acuerdense de aq(ue)llo q(ue) dize el sen(n)or en el sancto  
+euangelio dando nos doctrina como le auemos de  
+segujr dize. Si qujsieres ser perfecto ve y vende lo  
+q(ue) tienes y dalo a los pobres y ternas tesoro en el cie  
+lo y ven y sigueme. y dize mas. Si alguno qujsiere  
+venjr em pos de mj njegue a si mesmo y tome su cruz  
+y siguame. (y) los tales frayles deste primer estado,  
+an de ser y sean sacerdotes, exçepto aq(ue)llos q(ue) los co(n)  
+uentos tienen (y) tuvieren para serujçio de sus casas  
+(y) yglesias (y) personas. El segundo estado de hermjta  
+n(n)os los quales en hermjtas y hiermos sigujendo la  
+vida hermjtica a jnmjtaçio(n) de los padres del hiermo  
+de tierra de egipto los quales asi mesmo al tiempo q(ue)  
+hiziere(n) profession hagan y prometa(n) los dichos tres  
+votos essemçiales. El tercero estado de biudos co(n)tine(n)  
+tes (y) beatas (y) otras quales qujer personas q(ue) deste  
+habito (y) professio(n) andan vestidos. los qualles pro  
+metan voto de obediençia a sus perlados (y) voto de  
+
+### fol. 7r
+castidad y los mandamjentos diujnos. El quar  
+to estado de co(n)Jugados los qualles ansi mesmo pro  
+metan voto de obediençia a sus perlados (y) voto de  
+castidad co(n)jugal, y los mandamjentos divinos  
+en tal manera q(ue) haziendo profession en este estado  
+qualqujer dellos q(ue) la hiziere no pueda despues de di  
+suelto el matrimonjo por muerte de alguno, tor  
+narse acasar, sino q(ue) permanezca para siempre en el  
+terçero estado de biudos co(n)tinentes. los qualles  
+todos quatro estados su sanctidad por la dicha su  
+bulla ultimamente a esta orde(n) co(n)çedida q(ue) de sus o  
+va declarada, declara por verdaderos frayles (y) Reli  
+giossos (y) monJas Religiossas de la dicha orden sagra  
+da de penjtençia (y) por verdaderos hiJos de n(uest)ro padre  
+sant françisco. para q(ue) portales sean aujdos y tenjdos.  
+gozen jmperpetuum de las graçias jndulgençias  
+y perdones (y) libertades, jnmunjdades, exempçiones  
+(y) preujlegios co(n)çessos et co(n)çedendos jmposteru(m) ala  
+dicha orden y a las ordenes mendicantes (y) sancta  
+clara. Y nos el dicho fray antonio de tablada vissi  
+tador (y) mjnjstro general. (y) presidente (y) diffinjdo  
+res en este capitulo por esta n(uest)ra Regla y declaraçion  
+Respectiue por el poder a nos co(n)çedido portales los  
+auemos (y) diputamos (y) declaramos agora (y) dende  
+aquj adelante para siempre Jamas. esta declaramos  
+ser la verdadera jntelligençia de la dicha bula (y) de  
+su sanctidad q(ue) la co(n)çedio  
+  
+¶ **C**apitulo segu(n)do, q(ue) an de tener en proprio los  
+del primer estado. (y) q(ue) los co(n)ventos pobres pueden  
+pedir limosna  
+
+### fol. 7v
+**I**tem ordenamos establesçemos, q(ue) los fray  
+les y monJas q(ue) biue(n) colegialmente, no  
+tengan cosa propria en particular saluo  
+en comun. pero aujendo co(n)sideraçio(n) a q(ue) las mas  
+de las casas de la dicha sagrada orden son pobres,  
+(y) padesçe(n) otras nesçessidades. permjtimos q(ue) el dicho  
+vissitador mjnjstro general, sin lo cometer a otro  
+alguno les pueda dar licençia ansi a los Religios  
+sos (y) Religiossas en particular como a los co(n)ue(n)tos  
+en co(m)munjdad. para q(ue) ad vitam o ad tempus pue  
+dan tener proprio en particular todo aq(ue)llo q(ue) por  
+la tal liçençia les fuere co(n)çedido. en tal manera q(ue) çe  
+sando latal liçençia todo lo q(ue) les sobrare o tuujeren  
+se torne al co(n)uento do fuere(n) professos (y) a su co(m)mu  
+njdad. y en esto se en carga la conçiençia al vissitador  
+mjnjstro general q(ue) por tiempo es o fuere para q(ue)  
+usse de esta liçençia co(m)modamente no aujendo  
+Respecto a afiçio(n) particular. nj a otra cosa. saluo a  
+solo subuenjr (y) socorrer a la nesçesidad q(ue) le paresçie  
+re q(ue) ay (y) tienen las tales casas Religiossos (y) personas.  
+Sin estender la mano a cosas superfluas (y) volun  
+tariossas. (y) porq(ue) nos co(n)sta (y) sabemos en la dicha  
+sagrada orden de penjtencia, auer muchos conue(n)tos  
+(y) casas pobres ansi de frayles como de monJas y o  
+tros Religiossos (y) Religiossas q(ue) son pobres (y) biue(n)  
+de limosnas. Establesçemos y ordenamos q(ue) pue  
+dan pedir hostiatim quallesqujer limosnas ansi  
+(y) como las piden las otras ordenes mendicantes.  
+y los fieles christianos q(ue) les dieren las tales limos  
+nas ganen (y) co(n)sigan n(uest)ras gracias (y) perdones (y) jn  
+
+### fol. 8r
+dulgencias (y) aq(ue)llas q(ue) ganan (y) co(n)sigue(n) y gozan:  
+los q(ue) dan limosnas a las otras ordenes mendica(n)  
+tes (y) sancta clara. Pero mandamos q(ue) los tales Re  
+ligiossos o Religiossas de los dichos co(n)uentos o  
+otros quallesqujer de los dichos quatro estados q(ue)  
+quando fueren a pedir las dichas limosnas lieuen  
+liçencia de sus perlados o del mjnjstro o abbadessa  
+de los tales co(n)uentos (y) non allias. yendo co(n) la tal  
+liçencia y bendicion del perlado no ayan vergueça  
+de pedir: mas vayan co(n) mucha co(n)fiança. Ca como  
+el apostol sant pablo dize: El sen(n)or siendo Rico por  
+n(uest)ro amor en este mundo se hizo pobre. las Religiossas  
+de co(n)uentos pobres, q(ue) tiene(n) por costu(n)bre salir a pe  
+dir: guarden en sus salidas toda honestidad (y) en bi  
+en siempre personas ancianas (y) antiguas de qujen  
+no se pueda tener sospecha: nj se de q(ue) dezir o se tome  
+mal exemplo. Como se dira en el capitulo del Re  
+cogimjento de la dicha orden (y) co(n) todo lo q(ue) traxeren  
+(y) les fuere dado de las dichas limosnas: en no(n)bre de  
+los dichos monesterios (y) orden: en venjendo a sus  
+cassas, fielmente, acudan co(n) todo, a sus mjnjstros  
+o abbadessas. o a qujen tuviere el cargo de las tales  
+limosnas  
+  
+¶. Capitulo tercero del Reuerendissimo padre  
+vissitador mjnjstro general (y) de su poder, cargo  
+          ¶ (y) officio ¶  
+**Confor**manandonos co(n)  
+la costunbre antigua usada (y) guardada (y)  
+co(n) las bulas (y) letras apostolicas a la dicha or  
+de(n) co(n)çessas. (y) porq(ue) njnguna cosa q(ue) se mueua o RiJa  
+
+### fol. 8v
+
 
 
