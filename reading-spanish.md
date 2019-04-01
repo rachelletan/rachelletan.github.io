@@ -1129,5 +1129,215 @@ anduviere hasta boluerlo fuera (y) ansi mesmo
 los sieruos (y) sieruas de los tales monesterios po  
 
 ### fol. 19r
+dran entrar fasta do(n)de el perlado quando vissita  
+re dexare determjnado y diere para ello liçencia  
+y no mas  
+¶ Capitulo xiii. del vestido de los hermjtan(n)os  
+     y otras cosas q(ue) an de hazer  
+**Establescemos** (y) ordenamos q(ue)  
+los hermjtan(n)os desta orde(n) traygan el ha  
+bito y manto del color de los de la co(m)munj  
+dad y el habito no mas largo de hasta la garga(n)  
+ta del pie (y) la capilla senzilla y Redonda por las  
+espaldas y por el pecho a manera de muzeta (y) an  
+den tresqujlados a sobre peyne y la barba creçida  
+y traygan el manto angosto y todo zerrado pero  
+por delante sea abierto o la mayor parte del (y) tra  
+yan caperuça co(n) oreJas del mesmo pan(n)o (y) calças  
+del mesmo color el calçado negro y abrochados los  
+çapatos co(n) su lazo. la tunjca q(ue) debaxo traxeren se  
+a de pan(n)o honesto. y traygan cordo(n) como los otros  
+los qualles an de hazer (y) prometer los tres votos  
+ese(m)ptiales como dicho es pero tengan lice(n)cia para  
+poder tener en particular ansi dineros como bie  
+nes muebles (y) Rayzes por sus vidas (y) aq(ue)llas fe  
+neçidas los herede la casa (y) monesterio donde an  
+hecho professio(n) q(ue) sea de frayles. (y) sino la hizieren en  
+monesterio de frayles q(ue) lo aya el monesterio de fray  
+les mas çercano do(n)de fallesciere q(ue) sea de la dicha  
+orden. (y) Reze(n) (y) ayunen (y) guarden la Regla como  
+los de comunjdad y en todo (y) por todo. (y) lo nes  
+
+### fol. 19v
+cessario a sus co(n)ciencias. y lo de mas tenga(n) Recur  
+so a los mjnjstros delas casas mas propinquas  
+do(n)de habitare(n) y alli sen subJectos y te(n)ga(n) obedie(n)cia  
+¶ Capitulo xiiijo del vestido de los biudos con  
+   tinentes y conJugados y otras personas  
+   q(ue) biven en el siglo  
+**Los biudos** y co(n)tinentes y co(n)Jugados  
+(y) otras personas de la dicha orde(n) q(ue) biuen  
+en el siglo ordenamos y mandamos tra  
+yan los habitos del color arriba dicho de los her  
+mjtan(n)os y el largor de los dichos habitos sea  
+vn poco mas corto q(ue) el de los hermjtan(n)os por  
+Razo(n) del trabaJar y trayan cordo(n) de can(n)amo y  
+sobre el dicho habito puedan traer corochas o  
+mo(n)gil del mesmo pan(n)o y color y caperuça con  
+aletas del mesmo color y el cabello cortado por  
+la media oreJa poco mas o menos. y las calças  
+q(ue) traxere(n) sean del mesmo color y el calçado negro  
+con su lazo. y los Relligiosos co(n)Jugados beatas  
+(y) do(n)zellas de la orde(n) q(ue) de aquj adelante se Resçi  
+biere(n) en el siglo traera(n) los habitos (y) mantos (y)  
+vestidos del mesmo color y las tocas blancas de  
+lino puro (y) sin mezcla de seda o color o de otra  
+cosa q(ue) de mal exe(m)plo. todo co(n)forme a Religio(n). En  
+quanto al Rezar los casados o casadas o otras  
+personas del siglo (y) en todo lo demas q(ue) aquj no  
+se declara guarde(n) la Regla del papa njcholao q(ua)r  
+to. (y) por q(ue) nos co(n)sta aver en la dicha orde(n) de penj  
+
+### fol. 20r
+tencia muchas beatas q(ue) viven en el siglo (y) Reli  
+giosas honestas y habiles para Rezar el officio  
+segu(n)d la costu(n)bre q(ue) avemos dado de Rezar se  
+gund el huso Romano a los co(n)ventos de la di  
+cha orde(n) ansi lo Rezara(n). y las q(ue) no lo supieren  
+Reze(n) segu(n)d la Regla del papa njcholao quarto  
+de bien auenturada memoria. (y) los sobredichos  
+Religiosos (y) Religiosas en este capitulo conte  
+njdos (y) las cosas de su co(n)ciencia y en todo lo de  
+mas te(n)gan Recurso (y) obediencia al mjnjstro de  
+la casa mas proxima donde habitare(n) si no fue  
+re en parte o partes do(n)de toviere(n) asignado p(er)lado  
+¶ Capitulo xv como los frayles desta sagrada  
+orde(n) puede(n) tener beneficios y ansi mesmo lo q(ue)  
+an de mandar los Religiosos del siglo a la Reli  
+gio(n) al tiempo de su muerte si tuvieren legitti  
+mos herederos  
+**Por** quanto su sa(n)ctidad por la dicha su  
+bulla co(n)firmo (y) declaro establescio (y) or  
+deno q(ue) los frayles desta dicha orde(n) de pe  
+njte(n)cia podiesen tener beneficios ecclesiasticos  
+seglares, q(ue) no sean capitulares (y) q(ue) se acostu(n)bra(n)  
+tener por clerigos seglares, Establesçemos y orde  
+namos q(ue) los tales frayles puedan tener bene  
+ficios ecclesiasticos en titulo o encomjenda o  
+en otra qualqujer manera (y) canonjca institu  
+cio(n) o proujssion tener como los clerigos segla  
+res los tienen (y) puedan co(n)vertir (y) distribuyr  
+
+### fol. 20v
+los fructos dellos durante sus vidas en sus ne  
+çesidades (y) buenos husos (y) provecho de las casas  
+do(n)de viue(n) (y) tenga(n) la subJection (y) obediencia q(ue)  
+en el capitulo sigujente se dira (y) q(ue) despues de sus  
+vidas queden (y) pertenezca(n) todos sus bienes mue  
+bles (y) Rayzes q(ue) les sobrare(n) (y) Remanescieren, a  
+la casa (y) co(n)uento do oviere(n) tomado el habito (y)  
+fecho professio(n) taçita o expresa, sole(m)ne o no sole(m)ne  
+(y) tenjendo hedad (y) pasado el an(n)o del noviziazgo  
+pertenezcan los bienes del tal Religioso al mo  
+nesterio do(n)de tomo el habito au(n) q(ue) no aya hecho  
+sole(m)ne professio(n) pasado el an(n)o del noviciazgo se  
+aya por profeso (y) sus bienes herede la casa do to  
+mare el dicho habito (y) los herede todos y los tales  
+frayles q(ue) tuviere(n) beneficios sea(n) obligados a ser  
+vir su co(m)munjdad (y) co(n)ventos (y) Residir en ellos  
+saluo si el dicho vissitador mjnjstro general dispe(n)  
+sare co(n) ellos por algu(n) tiempo q(ue) le paresciere por  
+Justa causa (y) les diere lice(n)cia para ello. (y) q(ue) los biu  
+dos (y) co(n)tinentes (y) casados tenjendo legittimos he  
+rederos forçosos asçe(n)die(n)tes (y) desçendientes a q(ui)en  
+de derecho no puede desheredar en tal caso sean obli  
+gados a hazer al tiempo de su muerte vna manda  
+segun sus facultades para el monesterio do an to  
+mado el habito o profesio(n); sino lo tomaro(n) en mo  
+nesterio, sea la manda para el monesterio de fray  
+les mas çercano de do(n)de morare(n), pero sino toviere(n)  
+los tales herederos todos sus bienes muebles (y)  
+
+### fol. 21r
+Rayzes q(ue)den (y) pertenezca(n) al monesterio de fray  
+les de la dicha orde(n) donde el habito (y) profesio(n) Resçi  
+biero(n) (y) sino la Resçibiero(n) en monesterio de la orde(n)  
+q(ue) pertenezca(n) los tales bienes al monesterio de fray  
+les de la dicha orde(n) mas çercano de ado(n)de fallescieren  
+(y) si lo tomo en partes Remotas pertenezcan los ta  
+les bienes a la dicha casa de sancta maria del valle  
+cabeça de la dicha orden  
+¶ Capitulo xvio como todos los quatro estados  
+an de prometer satisfacio(n) en cumplir las penj  
+tencias q(ue) les dieren (y) no pueda(n) pedir ante o  
+tro Juez sino ante el conservador (y) Juez a  
+		          postolico  
+**Al tiempo** q(ue) hiziere(n) professio(n) todos  
+los dichos quatro estados prometan los  
+votos Respective q(ue) dichos son (y) de los tras  
+pasamjentos q(ue) podran hazer co(n)tra esta Regla pro  
+metan hazer satisfacio(n) (y) cu(m)plir la penjte(n)cia q(ue) el per  
+lado les diere (y) a el bien visto fuere siendo por el Re  
+queridos (y) lo q(ue) el mjnjstro o abbadesa del co(n)vento  
+les diere. Otro si ordenamos y prohibimos y ma(n)  
+damos q(ue) njngu(n) Religioso nj Religiosa de todos  
+los dichos quatro estados o de qualqujera dellos q(ue)  
+no pueda(n) pedir dan(n)os bienes (y) inJurias (y) otras  
+qualles qujer cosas a la orde(n) (y) a personas dellas to  
+cantes o del siglo por ante njngu(n) Juez ecclesiastico  
+nj seglar nj ante ordinario sino por ante los co(n)ser  
+vadores (y) Juezes apostolicos q(ue) la sancta sede aposto  
+
+### fol. 21v
+lica da a la orde(n). Sopena el q(ue) co(n)tra esto fuere  
+de priuacio(n) de los actos ligittimos y ser por el  
+mesmo fecho grauemente punjdo. las perso  
+nas Religiosas de la dicha orden no puedan  
+ser co(n)venjdos nj tanpoco ellos pedir vnos a  
+otros sino ante el Reuerendissimo padre vi  
+sitador mjnjstro general de la dicha orden o  
+ante sus co(m)mjssarios sola dicha pena  
+¶ Capitulo xvij. del ayuno (y) abstinencia  
+(y) modo de comer (y) de la disçiplina  
+**Dize el sen(n)or** aq(ue)ste genero de demo  
+njos no puede salir sino en ayuno (y)  
+oratio(n). Por tanto todos los dichos qua  
+tro estados, y maneras de frayles y monJas. y  
+hermanos de la dicha orde(n) de penjtencia Religi  
+osos y personas della no coman carne los mj  
+ercoles de todo el an(n)o saluo los henfermos (y)  
+flacos (y) lisiados (y) los sanos coman modera  
+damente y Jamas vnos nj otros coma(n) sin be(n)  
+dezir la mesa al prinçipio y al fin dando graçi  
+as a n(uest)ro sen(n)or por les dar el pan quottidiano  
+y si alguno se olujdare por cada vez sea obli  
+gado a dezir tres vezes el pater noster co(n) el a  
+ue maria y desde la fiesta de todos sanctos fasta  
+la Resurrectio(n) del sen(n)or sea(n) obligados a ayu  
+nar los mjercoles y por el semeJante todos  
+los viernes del an(n)o ayune(n) saluo quando la  
+natiujdad del sen(n)or cayere en viernes q(ue) ento(n)  
+
+### fol. 22r
+çes puedan comer carne. Ansi mesmo ayune(n)  
+desde la domjnjca primera en q(ue) el aviento se  
+encomjenza a zelebrar por la yglesia Romana  
+fasta el nascimjento de n(uest)ro Redemptor jesu chris  
+to cada dia co(n)tinuamente. E la quaresma de la  
+vnjuersal yglesia començandola den de la qujn  
+quagessima exçepto todos los domjngos (y) asi  
+mesmo ayunen todos los otros dias q(ue) la ygle  
+sia so cuya diocesi estuviere(n), manda ayunar  
+pero exceptamos deste ayuno a los enfermos  
+flacos, trabaJadores, camjnantes a pie, (y) las mu  
+geres co(n)Jugadas. ansi en esto como en el offiçio  
+de la oracion guarde(n) la Regla del papa njcholao  
+quarto. Otro si establesçemos (y) ordenamos q(ue)  
+los frayles y monJas de co(m)munjdad (y) perso  
+nas de los tres votos ese(m)pciales estando en sus  
+conventos (y) casas hagan disçiplina en la qua  
+resma tres dias de cada semana, lunes, (y) mjerco  
+les, (y) viernes. y en el aviento mjercoles (y) viernes  
+y tanbien todos los viernes del an(n)o, excepto si  
+fuere fiesta doble o sanctos de la orde(n). como di  
+ze el psalmjta apprehendite disçiplinam ne  
+quando irascatur dominus  
+¶ Capitulo xviiio del officio divino (y) oracio(n)  
+(y) confession (y) silencio  
+**Todos** los frayles y monJas y herma  
+nos desta orden: guarden en la yglesia  
+silencio, especialmente quando Se çele  
+
+### fol. 22v
 
 
