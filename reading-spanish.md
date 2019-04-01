@@ -946,5 +946,188 @@ sitador general, o por sus co(m)mjssarios, si qujere
 fazer profession en la dicha orden (y) Religion.  
 
 ### fol. 16r
+(y) si le plugujere dello sea admjtido a la professio(n)  
+(y) le sea dada siendo co(n)tenta la mayor parte del co(n)  
+vento y hallando lo habil para la dicha orde(n), en otra  
+manera, nj antes del an(n)o y dia de la dicha approba  
+cion no sea Resçebido, nj admjtido a la profession  
+nj le sea dada jnterim y le seran asignados por el  
+perlado maestros q(ue) los ensen(n)en (y) do trinem en las  
+cosas de la orden. Pero conformandonos co(n) las bu  
+las de n(uest)ra orden (y) co(n) n(uest)ros priujlegios (y) costun  
+bres antiguas (y) co(n) la dicha sancta bulla a nos co(n)  
+çessa nueuamente por el dicho n(uest)ro muy sancto  
+padre, celemente septimo, estatuymos y ordena  
+mos (y) declaramos y permjtimos q(ue) antes del di  
+cho an(n)o en qualqujer parte del, de el dicho vissita  
+dor general o sus co(m)mjssarios, atenta la instancia  
+del que lo pide (y) su deuocion (y) q(ue) expressamente  
+Renu(n)cia el dicho an(n)o y dia de approbacio(n), y pidi  
+ere la dicha profesion, q(ue) le pueda ser dada (y) sele  
+de con tal q(ue) sea co(n)tenta como dicho es la mayor  
+parte del convento, si fuere de los de co(m)munjdad,  
+sea avido (y) tenjdo por tal hermano frayle o por  
+monJa profesa de la orde(n), en todos los dichos quatro  
+estados (y) qualqujer dellos (y) personas de la dicha or  
+den para q(ue) fuere admjttido (y) goze de los privile  
+gios de la dicha orden de penjtencia como verda  
+dero Religioso della (y) todo esto se asiente en un li  
+bro q(ue) tenga cada convento para q(ue) co(n)ste dello (y) sea  
+dada (y) le damos al dicho libro entera fe (y) credito,  
+
+### fol. 16v
+seyendo firmado esto del tal vissitador general o  
+de sus co(m)mjssarios, en presencia del mjnjstro o ab  
+badessa de cada co(n)vento, como si ante notario pu  
+blico pasase. (y) njnguno q(ue) fuere ansi Resçebido  
+a la dicha orden, (y) dadole la dicha profession della  
+pueda ser salido nj tornado al siglo nj traslada  
+do a otra orde(n) aunq(ue) sea mas estrecha (y) approbada,  
+por la yglesia Romana, saluo co(n) liçencia (y) consenti  
+mjento expresso del dicho vissitador mjnjstro ge  
+neral o del difinjtorio del capitulo general. (y) si  
+no le fuere dada la tal liçencia q(ue) sea obligado a  
+permanesçer toda su vida en ella (y) por njnguna  
+facultad apostolica pueda ser salido nj exemjdo  
+de la obediencia de la dicha orden, saluo si el su(m)mo  
+po(n)tifiçe co(n) causa Justa (y) Razonable (y) haziendo  
+mencion desta approbacion (y) estatuto, le diere  
+para ello facultad  
+¶ Capitulo .xi. q(ue) aya maestros (y) maestras,  
+de los novicios (y) noujcias. (y) lo q(ue) an de hazer  
+y exercitar en el an(n)o del noviciado  
+
+**Item** establescemos (y) ordenamos q(ue)  
+en los monesterios (y) co(n)uentos de fray  
+les y monJas de la dicha orden aya maes  
+tros y maestras de novicios y novicias por evi  
+tar passiones, los quales maestros y maestras  
+doctrinen, y ensen(n)em a los tales novicios y novi  
+cias a bien amar (y) cognosçer a dios y los instru  
+
+<p align="right">[.yan.]</p>
+
+### fol. 17r
+yan en su sancta fe catholica (y) les vezen a ser deuotos  
+honestos (y) humildes (y) obedientes a sus perlados  
+(y) perladas. por manera q(ue) en ellos Reluza toda vir  
+tud y honestidad y humjldad y obediencia y Re  
+ligio(n). (y) en el an(n)o de su noviciado les muestre(n) (y) den a  
+entender todas las asperezas de la orde(n) haziendo se  
+las exerçitar para q(ue) meJor les co(n)ste dellas (y) serujr  
+(y) fazer los oficios de la co(m)munjdad. (y) ansi mesmo  
+co(n) mucho cuydado (y) vigilancia trabaJen co(n) las per  
+sonas q(ue) fuere(n) para choristas como deprendan (y) se  
+pan todo lo q(ue) es nesçesario para alcançar (y) Rezar (y)  
+Regir el culto diujno. lo qual procuren los dichos  
+maestros (y) maestras de los vezar muy bien y la obe  
+diencia (y) Reuerencia q(ue) an de tener a sus perlados  
+y perladas y a las otras personas ancianas de la  
+orde(n). y Retraygan los dichos novicios (y) noviçi  
+as q(ue) se aparten de la co(n)versacio(n) de las gentes (y) de  
+las porterias (y) po(n)gan su amor co(n) dios. y si en caso  
+de mucha nesçessidad oviere de hablar co(n) alguna  
+persona sea con liçencia del perlado o perlada. y en  
+presencia de su maestro o maestra y si la maestra  
+no fuere anciana, aco(m)pan(n)elas vna anciana de las  
+graderas y los novicios en el an(n)o de su noviciazgo  
+traeran en la punta del capillo para ser cognosçi  
+dos vna chia o pedaçillo de pan(n)o cosido en la pun  
+ta del capillo. las Religiosas novicias solamente  
+traeran sus cofias y toqujllas (y) Reboço. y al tie(m)  
+po de la profession Resçibira(n) el velo, el qual sera de  
+
+### fol. 17v
+ligno a signjficacio(n) de la Resurrectio(n) de nuestro  
+Redemptor jhesu christo  
+¶ Capitulo .xii. del habito (y) vestuario del pri  
+mero estado de frayles y monJas q(ue) biue(n) en co(m)mu  
+njdad y del Retraymjento y Recogimjento q(ue)  
+an de tener (y) guardar  
+
+**Ordenamos** establesçemos y man  
+damos q(ue) el habito y manto q(ue) an de traer  
+los frayles y monJas de co(m)munjdad de  
+toda la dicha orde(n) sea de pan(n)o humjlde mas negro  
+q(ue) blanco a modo del color del buriel de arago(n). y to  
+dos trayan el cordo(n) de can(n)amo como hiJos del bie(n)  
+auenturado padre sant françisco (y) los frayles tray  
+gan capilla co(n) dos puntas in modu(m) cruçis detras  
+que llegue al cordon y delante a la boca del estoma  
+go poco mas o menos y los mantos de los dichos  
+frayles seran zerrados sin maneras y abiertos  
+por delante co(n) corchetes o botones o vn poco ze  
+rrados como mas con venga a la honestidad, y  
+los vestidos sobredichos de frayles y monJas (y)  
+Religiosos de la dicha orden, nj cosas q(ue) traxere(n)  
+no lleuen seda nj sirgo nj pespuntado de pespunte  
+o hechura q(ue) no sea honesta o de mal exemplo. trae  
+ran los dichos frayles las tunjcas de debaxo de pa  
+n(n)o Religioso (y) humjlde. medias calças de pan(n)o  
+honesto q(ue) llegue(n) hasta ençima de la Rodilla co(n)  
+sus çapatos negros de lazo, y todo lo de mas q(ue) tra  
+xeren sea conforme a Religion asi en color como  
+
+### fol. 18r
+ligiosa desta obseruancia Regular no hable co(n)  
+njnguna persona de qualqujer estado o co(n)di  
+cio(n) (y) calidad q(ue) sea sino fuere por la Red otor  
+no o locutorio o lugar para esto diputado.  
+intervenjendo en la dicha habla y vissitacion  
+licencia de la abbadesa y otra Religiosa del dicho  
+monesterio por tercera de las graderas q(ue) el dicho  
+vissitador mjnjstro general en sus vissitacio(n)es  
+dexare no(n)bradas o alguna de las discretas an  
+cianas la (que) por la madre abbadesa le fuere aligna  
+da, y la tal monJa q(ue) ansi vissitare hable alto co  
+mo la co(m)pan(n)era la entienda (y) oya todo lo q(ue) di  
+xere, y las tales vissitaciones sean breues espici  
+almente co(n) honbres en tal manera q(ue) no pierda(n)  
+njnguna de las horas del officio divino. y en tie(m)  
+po de la Refectio(n) corporal y en tales tiempos se  
+prohiben las dichas vissitacio(n)es y ansi mesmo  
+al meridiano q(ue) se ha de tener desde pascua flori  
+da hasta sancta cruz de septienbre, y ansi mesmo  
+njnguna monJa sea osada de aprender a escrevir  
+nj exerçitarle sino tuviere liçencia del superior,  
+y en casos nesçesarios. (y) no pueda Rescebir carta  
+nj escreuir la nj darla sin q(ue) todo sea visto (y) examj  
+mjnado por la madre abbadesa y se haga co(n) su liçe(n)  
+cia (y) non alias E de todo en todo prohibimos (y)  
+q(ue)remos sean prohibidas quallesqujer Romeri  
+as estaciones (y) ydas (y) salidas a entierros (y) bap  
+tisterios (y) otras fiestas de fuera de los moneste  
+
+### fol. 18v
+rios aun q(ue) las tales Romerias ayan prometido.  
+pues njnguna a promessa en tal caso son obligadas  
+a co(m)plir (y) les mandamos q(ue) se aparten de la conver  
+sacion de los ho(n)bres en todo lo posible de qualqujer  
+estado q(ue) sea(n) por q(ue) es peligrosa (y) dan(n)osa la tal co(n)ver  
+sacio(n). nj entre(n) en aposentos o partes sospechosas  
+por q(ue) çese todo inconvenjente (y) sospechosa de mal, (y)  
+por q(ue) en derecho es prohibida la entrada de toda  
+manera de gentes en los monesterios de las mo(n)  
+Jas (y) por los previlegios q(ue) tiene(n) incurre(n) en exco  
+munjo(n) asi de Jure como por bulas apostolicas  
+de la dicha orde(n) los q(ue) co(n)tra esto va(n) por tanto de to  
+do en todo prohibimos el ingresso (y) entradas de  
+las tales personas en los dichos monesterios (y) ca  
+sas de monJas desta dicha orde(n) declarando como  
+declaramos caer (y) incurrir en sentencia de ex  
+comunjo(n) mayor agentes (y) co(n)sencientes q(ue) lo  
+contrario hiziere(n) la absolucion de lo qual sea  
+Reseruada al dicho vissitador mjnjstro general  
+y esta no se entienda para los confessores (y) ofi  
+ciales q(ue) labraren en los tales monesterios nj pa  
+ra los medicos (y) barueros q(ue) curare(n) o zuruJa  
+nos q(ue) los monesterios tienen los tales podran  
+entrar aviendo nesçessidad para exerçitar cada  
+vno su officio co(n) liçencia de la abbadesa, y una  
+anciana o dos q(ue) aconpan(n)en al q(ue) entrare por do  
+anduviere hasta boluerlo fuera (y) ansi mesmo  
+los sieruos (y) sieruas de los tales monesterios po  
+
+### fol. 19r
 
 
