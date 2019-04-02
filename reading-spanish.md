@@ -1932,7 +1932,7 @@ na. (y) Rodrigo de tablada, Rector de sa(n)cta cruz (y) sa(n)c
 tivan(n)ez de la dioçesis de astorga (y) alonso tabuyo  
 (y) martin Royo clerigos de la dicha dioçesis de as  
 torga. testigos para todo lo susodicho espeçialme(n)te  
-llamados (y) Rogados &nbsp;&nbsp;&nbsp;	¶ Exortaçion ¶  
+llamados (y) Rogados &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;¶ Exortaçion ¶  
 ¶ **E**n el no(n)bre de dios todo poderoso y de la virgen  
 sacratissima madre suya y sen(n)ora n(uest)ra y de toda la  
 celestial corte. Rogamos y exortamos a todos los  
@@ -1942,6 +1942,56 @@ la salud de n(uest)ras animas. y esto Reduza(n) y encomie(n)
 de(n) co(n)tinuamente a la memoria. y Rogamos a dios  
 
 ### fol. 32v
+n(uest)ro sen(n)or q(ue) el q(ue) es todo poderoso trino y uno bendi  
+ga a todos los q(ue) ensen(n)aren y aprendiere(n) (y) obrare(n)  
+estas cosas q(ue) aqui para n(uest)ra salud (y) saluacio(n) estan  
+puestas. E pedimos a todos q(ue) guarde(n) la sobre di  
+cha Regla co(n) toda obediençia y esto de parte de di  
+os o(m)njpote(n)te y de n(uest)ro padre sant françisco y de n(uest)ro  
+muy sancto padre cleme(n)te septimo moderno el q(ua)l  
+nos co(n)çedio su authoridad y facultad por su san  
+cta bula y para hazer la dicha Regla, la qual fue da  
+da (y) co(n)çedida, videlicet. Rome apud sa(n)ctu(m) petru(m)  
+anno incarnacionis d(omi)nice, millessimo quingen  
+tessimo vigessimo sexto, ydus martii, po(n)tificatus  
+sui anno quarto. Por cuya authoridad co(n)stitu  
+ymos y hezimos la dicha Regla (y) estatutos. la q(ua)l  
+su sa(n)ctidad co(n)firma (y) aprueua, eo ipso, q(ue) fueron  
+hechos, por la dicha bula (y) manda ser guardados  
+ynviolableme(n)te para siempre jamas. E nos ansi  
+lo declaramos (y) mandamos. E qualquiera de vos  
+q(ue) la guardare en el çielo sea lleno de bendicio(n) del  
+altissimo padre çelestial, en la tierra sea lleno co(n)  
+bendicio(n) de su amado hiJo co(n) el sa(n)cto spiritu co(n)so  
+lador. y de todas las virtudes de los çielos y de los  
+sa(n)ctos. E nos el dicho fray antonio de tablada vi  
+sitador prothoministro general moderno prime  
+ro despues de la co(n)çessio(n) de la dicha sa(n)cta bula, v(uest)ro  
+en el sen(n)or y sieruo de toda la dicha orde(n) en quanto  
+podemos vos bendezimos (y) como meJor podemos  
+(y) vos damos n(uest)ra bendiçio(n). (y) firmemente ma(n)damos  
+
+### fol. 33r
+(y) ynJungimos q(ue) de las cosas suprascriptas njn  
+guno las diminuya augmente, falte o ponga  
+o quite o glose por obra o por palabra. Ni todos  
+los Religiosos de todos los dichos quatro esta  
+dos (y) personas dellos no tenga(n) otra Regla co  
+mo dicho es (y) esta declarado. (y) todas personas  
+q(ue) leyeren (y) oyeren leer esta dicha Regla: les con  
+çedemos todas las graçias yndulgencias (y)  
+perdones q(ue) nicholao papa quarto (y) por los o  
+tros po(n)tifiçes de gloriosa memoria fuero(n) co(n)çe  
+didas, a los q(ue) oyere(n) leer o leyere(n) la dicha Regla  
+desta orde(n) gloriosa de penitencia (y) de las otras  
+quatro ordenes mendicantes. la qual co(n)tiene  
+en si treynta capitulos sin el prohemio (y) esta  
+n(uest)ra exortaçion en fin della  
+
+¶ Gloria patri et filio (y) spiritui s(an)cto. (et) c(etera). ¶  
+
+
+¶ Un aue maria por quien la escriuio. ¶  
 
 
 
