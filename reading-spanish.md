@@ -1792,7 +1792,156 @@ son co(n)çedidas (y) ansi mismo todas las q(ue) son co(n)
 çedidas a las ordenes mendicantes (y) a la orde(n)  
 
 ### fol. 30r
+de sa(n)cta clara. lo qual todo declaramos, establesçe  
+mos (y) les otorgamos q(ue) ansi lo gozen ta(n) cu(m)plidame(n)  
+te como los frayles y monJas de co(m)munidad desta   
+sagrada orde(n) de penitencia lo goza(n) (y) tienen (y) por la  
+sancta sede apostolica les esco(n)çedido. y ansi mesmo  
+todo lo q(ue) de aqui adelante se co(n)çediere a toda n(uest)ra  
+orde(n) y a todas las otras ordenes sobredichas a(n)si  
+lo tenga(n) (y) goze(n) sin ninguna differençia como en  
+la sa(n)cta bulla ad uberes fructus se co(n)tiene. (y) las  
+mesmas graçias espirituales goza(n) sus seruidores  
+(y) seruidoras para la salud de sus animas como los  
+Religiosos y Religiosas sobredichos  
+¶ Capitulo .xxix. que en todas dubdas q(ue) ocurrie  
+ren, Recurran (y) te(n)gan la declaracio(n) (y) interpretaçio(n)  
+del vissitador ministro general de la dicha orden  
 
+**Otro si** establesçemos y mandamos q(ue) si  
+alguna cosa en esta Regla faltare  
+q(ue) co(n)uenga, a la salud de las animas y bue  
+na gouernacion de todos los dichos quatro esta  
+dos o qualquiera dellos (y) personas de la dicha or  
+den q(ue) el visitador ministro general desta dicha orde(n)  
+sagrada de penite(n)çia prouea en ello por palabra o  
+constituciones o estatutos ansi particulares como  
+generales, como a el paresçiere q(ue) co(n)uiene a la salua  
+çio(n) de las animas y buena governaçio(n) de la dicha  
+orde(n) y a la obseruançia Regular della, en tal mane  
+ra q(ue) la declaraçio(n) de todas las cosas (y) cada una  
+
+### fol. 30v
+dellas quede(n) en el arbitrio (y) determinacio(n) del dicho  
+visitador ministro general de la dicha orde(n) (y) co(n)for  
+me a lo q(ue) la sancta bula dize ordenamos estables  
+çemos q(ue) el visitador ministro general susodicho  
+pueda disçernir (y) declarar (y) ynterpretar todas  
+(y) quallesquier dubdas, differe(n)cias difficultades  
+o ynteligencias q(ue) en esta dicha Regla y en los preui  
+legios y bulas estatutos husos (y) costu(n)bres de la  
+dicha orde(n) ocurriere(n). E otra persona ninguna no  
+pueda i(n)terpretar ni declarar las dichas dubdas  
+sino el visitador ministro general. (y) por lo q(ue) el dixe  
+re (y) declarare este(n) todos sin ninguna differençia  
+¶ Capitulo .xxx. para todos los quatro estados.  
+(y) personas de la dicha sagrada orden de peni  
+tencia  
+**Por** la authoridad apostolica de q(ue) en esta  
+parte usamos establesçemos declara  
+mos y ordenamos y mandamos q(ue) los fray  
+les y monJas de los co(n)ventos y co(m)munidades y her  
+mitan(n)os q(ue) promete(n) los tres votos ese(m)pciales no se  
+entienda ni sean obligados a guardar otra ninguna  
+Regla sino esta por nos fecha (y) ynstituyda y ordena  
+da, establesçida por authoridad apostolica. Pero los  
+co(n)jugados (y) co(n)jugadas (y) co(n)tine(n)tes (y) biudos (y) otras  
+personas desta manera q(ue) no so(n) de co(m)munidad (y) bi  
+uen en el siglo lo q(ue) de aqui Resta por declarar (y) po  
+ner lo Remitimos a q(ue) guarde(n) (y) cu(m)plan lo q(ue) les es  
+mandado (y) se co(n)tiene en la bula de nicholao q(ua)rto.  
+
+### fol. 31r
+E otro si co(n)formandonos co(n) las bulas (y) previlegi  
+os y facultades de la dicha sagrada orde(n) de penitençia  
+establesçemos y ordenamos q(ue) en cosa alguna de  
+las sobredichas y en esta sa(n)cta Regla puestas a las  
+qualles no son obligados de diuinos preçeptos  
+por estatutos de la madre sa(n)cta yglesia o por los  
+dichos tres votos ese(m)çiales los dichos frayles y  
+monJas y personas de toda la dicha sagrada orden  
+de penitençia por esta Regla no sea(n) obligados ni  
+los obligamos a peccado mortal ni venial exçep  
+to q(ue)remos q(ue) sean obligados a cu(m)plir las peniten  
+çias (y) penas q(ue) en la dicha orde(n) por tie(m)po les fuere(n)  
+ynpuestas por el vissitador ministro general o  
+sus co(m)misarios o ministros o abbadesas en cada  
+co(n)vento, las qualles pura (y) perfectamente co(n) to  
+da Reuere(n)çia (y) humildad deue(n) cu(m)plir (y) cu(m)pliran  
+sin falta ninguna. los qualles preçeptos co(n)sti  
+tuciones, estatutos (y) ordenaçiones de suso co(n)teni  
+dos en esta Regla (y) cada uno dellos por la dicha  
+authoridad apostolica, nos los dichos visitador mj  
+nistro general (y) preside(n)te (y) diffinidores de la dicha  
+sagrada orde(n) de penitencia hazemos establesçe  
+mos (y) ordenamos (y) auemos fecho establescido  
+(y) ordenado para siempre Jamas de consensu toti  
+us capituli (y) los publicamos en el para q(ue) tenga(n)  
+fuerza (y) vez (y) Regla de n(uest)ra sagrada orde(n) de penite(n)  
+çia en este Reyno de espan(n)a (y) portugal (y) otras par  
+tes qualles quiera. la qual dicha Regla (y) bulas de  
+
+### fol. 31v
+q(ue) suso se haze mençio(n) de n(uest)ro muy sancto padre cle  
+mente septimo fuero(n) leydas (y) notificadas a todo  
+el dicho capitulo (y) ministros (y) procuradores dis  
+cretos. el qual (y) todos (y) cada vno dellos por si y en  
+no(n)bre de toda la orde(n) presentes y futoros las obe  
+desçiero(n) como en las dichas bulas (y) Regla se co(n)tie  
+ne. las qualles nos fuero(n) notificadas original  
+mente (y) las obedesçemos en todo (y) q(ue)remos. y or  
+denamos q(ue) de aqui adelante esta sea auida por  
+Regla de la dicha sagrada orde(n) de penite(n)çia. la q(ua)l  
+su sa(n)ctida por la dicha bula co(n)firma. E esta sean o  
+bligados a guardar todas las personas della. (y)  
+no otra q(ue) paresçer pueda q(ue) fasta aqui se aya teni  
+do. exçepto como dicho es los del siglo q(ue) lo q(ue) aqui  
+no se puso declara q(ue) atienda(n) a la Regla del nichola  
+o quarto q(ue) habla con ellos lo q(ue) deuem cu(m)plir. (y)  
+la mandamos enbiar esta dicha n(uest)ra Regla a to  
+dos n(uest)ros conventos, a(n)si por nos fecha (y) subditos  
+(y) subditas (y) personas quallesquier de la dicha  
+orde(n). para q(ue) sea en todo y por todo guardada (y) obe  
+desçida (y) cu(m)plida como en ella se co(n)tiene. laus deo.  
+E para mayor seguridad (y) firmeza la otorgamos  
+ante los escriuanos publicos (y) testigos infra  
+escriptos a los qualles todos (y) a cada uno dellos  
+pedimos lo escriuiesen ofiziesen escreuir (y) lo  
+signasen co(n) sus signos q(ue) fue fecha (y) paso todo lo  
+susodicho en la dicha casa (y) monesterio de n(uest)ra se  
+n(n)ora del valle de la dicha orde(n) sagrada de penite(n)çia.  
+
+### fol. 32r
+dentro del capitulo della estando todos ju(n)tos los  
+ministros (y) procuradores discretos de la dicha orde(n)  
+a son de canpana tan(n)ida ayu(n)tados todos en su lu  
+gar acostu(n)brado (y) capitulo de la dicha casa. A pri  
+mero dia del mes de jullio an(n)o del nasçimjento  
+de n(uest)ro saluador ihesu christo de mill (y) quinientos  
+(y) veynte y ocho an(n)os. en la yndictio(n) primera del  
+po(n)tificado del n(uest)ro muy sancto padre cle\[me\]nte por  
+la diuina prouide(n)çia papa septimo an(n)o quinto.  
+en el primero capitulo general fecho (y) çelebrado  
+despues de la co(n)çessio(n) de la bula de su sanctidad co(n)  
+çessa en la manera sobre dicha para effecto de la crea  
+çio(n) de la dicha sancta Regla (y) co(n)stituçiones (y) esta  
+tutos en la manera sobredicha estando a ella pre  
+sentes los discretos varones y sen(n)ores françisco  
+hernandez Rector de la villa de palaçios de valduer  
+na. (y) Rodrigo de tablada, Rector de sa(n)cta cruz (y) sa(n)c  
+tivan(n)ez de la dioçesis de astorga (y) alonso tabuyo  
+(y) martin Royo clerigos de la dicha dioçesis de as  
+torga. testigos para todo lo susodicho espeçialme(n)te  
+llamados (y) Rogados &nbsp;&nbsp;&nbsp;	¶ Exortaçion ¶  
+¶ **E**n el no(n)bre de dios todo poderoso y de la virgen  
+sacratissima madre suya y sen(n)ora n(uest)ra y de toda la  
+celestial corte. Rogamos y exortamos a todos los  
+Religiosos (y) Religiosas aplicado el thenor y sentido  
+de aquellas cosas q(ue) esta(n) escriptas en esta vida para  
+la salud de n(uest)ras animas. y esto Reduza(n) y encomie(n)  
+de(n) co(n)tinuamente a la memoria. y Rogamos a dios  
+
+### fol. 32v
 
 
 
