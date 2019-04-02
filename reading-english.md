@@ -4,7 +4,7 @@ title: Reading Edition
 subtitle:
 ---
 
-## fol. 1r
+### fol. 1r
 **_Jesus,
 in God’s name. Amen._**
 \[From\] Our Friar Antonio
@@ -38,7 +38,7 @@ sacred community and Order of Penitence, with the divine hand governing it,
 maintaining it, and enhancing it and adorning
 it, has grown and has expanded, shone and flourished—not only
 
-## fol. 1v
+### fol. 1v
 from notable barons and nuns, but from holy and clear
 branches canonized by the Holy Apostolic See, whose
 excellent lives and works shine like the
@@ -70,7 +70,7 @@ growth has been such that, being established at the outset
 for married people so that they might live in their houses and in
 particular \[live\] beyond the divine precepts obligatory only to
 
-## fol. 2r
+### fol. 2r
 obedience, now and many times since there have been and are
 in it \[the Order\] men and women, friars and nuns, \[and\] academic
 scholars who preach the divine word; and, permitting
@@ -103,7 +103,7 @@ through his open bull, graciously written in Latin and on
 parchment, and at the end sealed with his stamp of lead hanging on those 
 coloured silks, in accordance with the style and custom of
 
-## fol. 2v
+### fol. 2v
 Rome, _as a permanent record of the matter_: “I confirm and
 approve and once again grant \[that\] the said Sacred Order
 and Religion of Penitence, based on indulgences and concessions
@@ -132,3 +132,6 @@ for a time, as representatives to the holy Apostolic See,
 taking them under his protection and refuge
 and into all his Order. Likewise, “I confirm and once
 again grant what they rejoice in: \[that\] the said Sacred Order of Spain,
+
+### fol. 3r
+
