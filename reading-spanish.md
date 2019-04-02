@@ -1642,6 +1642,156 @@ pia en el monesterio de sancta maria del valle:
 cabeça de la orden, donde los q(ue) ansi anduvieren  
 
 ### fol. 27v
+extrauagantes vagando seran penitenciados  
+en la carçel q(ue) para los tales esta diputada. E an  
+si mesmo este capitulo se entiende a las mon  
+Jas de la dicha orden. Saluo en quanto a lo  
+de la carçel. Sean castigadas en sus moneste  
+rios como dicho es en la penitencia sobre  
+dicha. E lo q(ue) dize arriba q(ue) los Religiosos an  
+den de dos en dos: podran andar de uno en uno  
+dando les el perlado para ello liçençia (y) yendo  
+con su bendiçion  
+¶ Capitulo .xxviij&deg;. como se ha de elegir el her  
+mano administrador de los del siglo. y la ma  
+dre de las freylas o beatas  
+**Otro si** ordenamos y mandamos  
+y establesçemos q(ue) el q(ue) en el  
+siglo oviere de tener cargo de los Reli  
+giosos conJugados (y) biudos continentes, (y)  
+personas semejantes del siglo. q(ue) el tal sea lla  
+mado (y) se llame administrador a differencia  
+de los ministros de los conventos. El qual se  
+ra elegido desta manera (y) forma siguiente el  
+primero domingo de mayo de cada un an(n)o los  
+dichos Religiosos de la çibdad o pueblo o Re  
+gion donde oviere alguna cantidad de los ta  
+les Religiosos Se juntaran en el lugar dipu  
+tado q(ue) para esto vieren ser conueniente o en  
+algu(n) oratorio (y) yglesia parte honesta donde  
+el dicho administrador les sen(n)alare. el qual lle  
+
+### fol. 28r
+vara alli para el dicho dia tomadas por Relaçio(n)  
+las vidas de cada uno de los dichos Religiosos.  
+como guardan la Regla (y) honestidad y el byen  
+o mal q(ue) dellos dizen sus vezinos y los clerigos  
+donde mora(n). E ansi auida ynformaçio(n) por  
+escripto de todos los sobredichos (y) de cada uno  
+dellos (y) trayda al tiempo (y) capitulo susodi  
+cho al qual sino se hallare presente el ministro  
+general visitador o su co(m)missario, el dicho ad  
+ministrador llamara al ministro de co(m)mu  
+nidad mas çercano donde el tal capitulo  
+se hiziere. El qual ministro despues de pro  
+puesto el sermon (y) habla a todos seyendo Ju(n)  
+tos en el dicho capitulo luego en co(n)tinente  
+el hermano administrador se po(n)ga de Rodi  
+llas delante del ministro (y) diga la cul  
+pa de sus defectos (y) negligencias ansi de los  
+q(ue) ha hecho en su officio como los de su perso  
+na. y tras esto Renunciara el officio sobredicho  
+de administrador en manos del dicho minis  
+tro q(ue) presidiere en el dicho officio (y) capitulo  
+y de los hermanos q(ue) alli estuviere(n). el qual le  
+ymporna penitencia conforme a sus demeri  
+tos. de los qualles (y) del dicho officio le absolue  
+ran. dando le alli el administrador las Relaci  
+ones (y) informaciones o visitaciones q(ue) por   
+escripto tiene de la uida de todos los dichos  
+hermanos. y las çedulas de sus co(n)fessiones. y  
+
+### fol. 28v
+luego todos los Religiosos vno empos de otro  
+se porna(n) de Rodillas delante del dicho ministro  
+(y) a(n)si mesmo cada uno dira su culpa de los q(ue)bra(n)  
+tamientos de la Regla (y) estatutos. (y) de sus defe  
+ctos (y) presentara la çedula de sus co(n)fessiones de  
+todo el an(n)o. y ansi como cada uno fuere a de  
+zir su culpa y dar sus çedulas al dicho ministro  
+leera a cada vno la ymformacio(n) de su vida q(ue) el  
+dicho administrador a sacado y la q(ue) el tuviere  
+(y) oviere auido (y) conforme a ella (y) a sus de  
+meritos ansi le pugnira (y) castigara (y) impor  
+na penitencia saludable a su anima librando  
+la con la absoluçio(n) q(ue) a cada uno (y) a todos ju(n)cta  
+mente dara. E fecha la correctio(n) (y) castigo el di  
+cho ministro sin q(ue) otro ynteruenga tome los  
+votos de los dichos Religiosos todos ponie(n)do  
+les por obediencia (y) encargandoles las co(n)cie(n)  
+cias q(ue) eliga(n) por su administrador por un an(n)o  
+primero siguiente a la persona q(ue) les paresçiere  
+q(ue) sera mas suffiçiente para Regir (y) gouernarlos  
+dichos hermanos Religiosos. y el tal offiçio y e  
+llos seran co(n) el ho(n)Rados y procuradas sus co(n)çie(n)  
+çias spirituales (y) byenes te(m)porales. E ansi to  
+mada la dicha electio(n) do ocurrieren la mayor  
+parte pasando de la meytad de los votos alli se  
+ra la electio(n). pero toda via aviendo dos ellectos  
+si el q(ue) tuviere alguna partezilla menos q(ue) el otro  
+fuere persona de quien se tiene experie(n)çia de vida  
+
+### fol. 29r
+(y) conçiençia y exe(m)plo y alli ovie(n)re(n) co(n)currido los mas  
+ançianos o mas sanos votos aq(ue)l podra preferir al  
+otro. en lo qual co(n)forme a co(n)çiençia el perlado o el  
+dicho ministro co(n)firmara de los dos el q(ue) segu(n) dios  
+(y) buena co(n)çie(n)çia le paresçiere q(ue) es mas habil para  
+el dicho officio. E ansi fecha la electio(n) primero a  
+viendo co(n) su mjssa ynvocado la graçia del espiritu sa(n)  
+cto como haze(n) los de co(m)munidad (y) declarada la  
+dicha election (y) co(n)firmado el dicho administra  
+dor dira(n) el hy(m)no de veni cr\e/ator co(n) las oraciones a  
+costu(n)bradas. y dada la be(n)dicio(n) del perlado todos los  
+hermanos verna(n) abesarle el habito al dicho admi  
+nistrador en sen(n)al de obediençia la qual manda  
+ra el dicho ministro a todos por sancta obediençia  
+le tengan obediençia (y) Reuerencia (y) cu(m)pla(n) (y) ha  
+ga(n) sus mandamjentos como de padre suyo (y) en  
+el dicho capitulo (y) visitacio(n) el dicho ministro los  
+Reforme ansi en los vestidos cabellos trajes co(n)  
+forme a la dicha Religio(n). a la qual no pueda Reçe  
+bir a ninguna persona el dicho administrador  
+sin liçe(n)çia del visitador ministro general o de q(ui)e(n)  
+su poder para ello oviere. El qual no se de sino a per  
+sonas de muy buena vida y deseos y exemplos y  
+q(ue) ho(n)rre la orde(n) y no la perJudiq(ue). y porq(ue) en esta sa(n)cta  
+orde(n) ay muchas freylas y beatas en el siglo q(ue) son per  
+sonas de mucho genero y meresçimjento y muy  
+sieruas de dios (y) de la Religio(n) (y) de su estado. dellas  
+ay muchas sanctas gloriosas en el çielo canoniza  
+
+### fol. 29v
+das por la sa(n)cta sede apostolica cuya mençio(n) la  
+madre sancta yglesia haze en los dias q(ue) dellas se  
+çelebra y Reza. por tanto ayudando con adju  
+torio a sus loables vidas y deseos: Establesçe  
+mos y ordenamos y mandamos. q(ue) en los pue  
+blos y partes donde oviere las dichas freylas  
+beatas auiendo algu(n) tanto copia dellas en la  
+manera susodicha de los Religiosos del siglo  
+mutatis mutandis: eliga(n) perlada q(ue) sea lla  
+mada madre (y) administradora dellas. E se ha  
+ga cada an(n)o: como dicho es. y en el pueblo q(ue) no  
+ouiere copia de Religiosas para elegir madre:  
+seran obedientes al dicho administrador de  
+aq(ue)lla partida o Regio(n) do(n)de el tuviere cargo. y si  
+por algu(n) ympedimento o causa no se hyziese  
+el dicho capitulo en el tie(m)po sobredicho q(ue)remos q(ue)  
+no sea visto vacar los tales offiçios fasta tanto  
+q(ue) les sea mandado Renunciar por el visitador mi  
+nistro general o su co(m)missario o el ministro mas  
+çercano si poder para ello toviere. E a los dichos  
+Religiosos y Religiosas hermanos y hermanas  
+q(ue) biuen en el siglo les co(n)çedemos todas las gra  
+çias (y) perdones Remisiones yndulgencias y fa  
+cultades libertades franq(ue)zas (y) y(n)munidades (y)  
+exe(m)pçiones espirituales y te(m)porales (y) byenes  
+q(ue) nuestra sagrada orde(n) de penitencia tiene (y) les  
+son co(n)çedidas (y) ansi mismo todas las q(ue) son co(n)  
+çedidas a las ordenes mendicantes (y) a la orde(n)  
+
+### fol. 30r
 
 
 
