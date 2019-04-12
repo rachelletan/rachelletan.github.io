@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Reading Edition
+title: Translation
 subtitle:
 ---
 
