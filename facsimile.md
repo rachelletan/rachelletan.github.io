@@ -70,5 +70,5 @@ fol. 30r | fol. 30v
 fol. 31r | fol. 31v
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2397"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2398">
 fol. 32r | fol. 32v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2393"> |   
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2399"> |   
 fol. 33r |  
