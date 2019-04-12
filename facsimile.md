@@ -36,3 +36,17 @@ fol. 13r | fol. 13v
 fol. 14r | fol. 14v
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2363"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2364">
 fol. 15r | fol. 15v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2365"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2366">
+fol. 16r | fol. 16v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2367"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2368">
+fol. 17r | fol. 17v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2369"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2370">
+fol. 18r | fol. 18v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2371"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2372">
+fol. 19r | fol. 19v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2373"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2374">
+fol. 20r | fol. 20v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2375"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2376">
+fol. 21r | fol. 21v
+<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2377"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2378">
+fol. 22r | fol. 22v
