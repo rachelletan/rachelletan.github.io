@@ -23,9 +23,9 @@ description: A digital edition of _Regla de la Sagrada Orden de Penitencia_ (c. 
 # List of links in the navigation bar
 navbar-links:
   Overview: "proj-overview"
-  Editions:
+  MS.Span.1:
     - Transcription (Spanish): "reading-spanish"
-    - Reading Edition (English): "reading-english"
+    - Translation (English): "reading-english"
     - Facsimile Images: "facsimile"
   Conventions: "conventions"
   Resources:
