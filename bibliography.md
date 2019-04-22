@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Bibliography
-subtitle: and other resources
+subtitle: and Other Resources
 ---
 
 ### Manuscript
@@ -20,21 +20,46 @@ subtitle: and other resources
 
 ### Translation
 
+- “Best Practices for the Translation of Official and Legal Documents.” _Australian Institute of Interpreters and Translators_. Melbourne, 2014. [Web](https://ausit.org/AUSIT/Documents/Best_Practices_2014.pdf).
 - Boggs, Ralph Steele, Lloyd Kasten, Hayward Keniston, and H. B. Richardson. _Tentative Dictionary of Medieval Spanish_. Chapel Hill: n. pub., 1946.
 - de Covarrubias, Sebastián. _Tesoro de la Lengua Castellana o España_. Madrid, 1611.
-- “Minsheu Dictionary.” Early Modern Spain. King’s College, 2006. [Web](http://www.ems.kcl.ac.uk/content/proj/anglo/dict/pro-anglo-dict-main.html).
+- “Minsheu Dictionary.” _Early Modern Spain_. King’s College, 2006. [Web](http://www.ems.kcl.ac.uk/content/proj/anglo/dict/pro-anglo-dict-main.html).
 - Wheelock, Frederic M. and Richard A. Lafleur. _Wheelock's Latin_. 7th ed., Harper Collins, 2011.
 <br><br>
 
 ### Papal Bulls
 
-- Honorius III. _Solet annuere_. The Holy See, 29 November 1223. (bull confirming the Rule of St Francis)
-- Nicholas IV. _Supra montem_. The Holy See, 17 August 1289. (bull affirming the Rule of the Third Order Regular until 1521 and Third Order Secular until 1883)
+- Honorius III. [_Solet annuere_](http://www.papalencyclicals.net/hon03/regula-e.htm). The Holy See, 29 November 1223. (bull confirming the Rule of St Francis)
+- Nicholas IV. [_Supra montem_](https://franciscanarchive.org/bullarium/smonteme.html). The Holy See, 17 August 1289. (bull affirming the Rule of the Third Order Regular until 1521 and Third Order Secular until 1883)
 - Leo X. _Inter cetera_. The Holy See, 20 January 1521. (bull instructing members of the Third Order Regular on how to behave in the community)
-- Clement VII. _Dum uberes fructus_. The Holy See, 1526. (bull confirming all the privileges previously granted to the tertiaries of Spain)
+- Clement VII. _Ad uberes fructus_. The Holy See, 1526. (bull confirming all the privileges previously granted to the tertiaries of Spain)
 - Paul III. _Ad fructus uberes_. The Holy See, 3 July 1547. (bull approving a triple Rule for the tertiaries of Spain, recognizing and accommodating different requirements for friars, nuns, and lay people)
-- Pius XI. _Rerum condicio_. The Holy See, 4 October 1927. (bull renewing Leo X’s Rule of 1521 in conformity with the new code of Canon Law)
-- John Paul II. _Franciscanum vitae_. The Holy See, 8 December 1982. (bull identifying the current Rule with the ancient Order of Penitents of St Francis)
+- Pius XI. [_Rerum condicio_](http://www.franciscan-archive.org/bullarium/rerumcoe.html). The Holy See, 4 October 1927. (bull renewing Leo X’s Rule of 1521 in conformity with the new code of Canon Law)
+- John Paul II. [_Franciscanum vitae_](https://www.ifc-tor.org/en_rule.htm). The Holy See, 8 December 1982. (bull identifying the current Rule with the ancient Order of Penitents of St Francis)
+<br><br>
+
+### Franciscans, Franciscan History, and the Franciscan Third Order
+
+- Arbiol, Antonio. _La Ven. y Esclarecida Orden Tercera de S. Francisco_. p. 399. M.Romeu, 1714.
+- Bede, Jarrett, Ferdinand Heckmann, Benedict Zimmerman, Livarius Oliger, Odoric Jouve, Lawrence Hess, and John Doyle. “Third Orders.” _The Catholic Encyclopedia_. Vol. 14. New York: Robert Appleton Company, 1912. [Web](http://www.newadvent.org/cathen/14637b.htm).
+- Bihl, Michael. “Order of Friars Minor.” _The Catholic Encyclopedia_. Vol. 6. New York: Robert Appleton Company, 1909. [Web](http://www.newadvent.org/cathen/06281a.htm).
+- Carney, Margaret, Jean François Godet-Calogeras, and Suzanne M. Kush, eds. History of the Third Order Regular Rule: A Source Book. Saint Bonaventure: Franciscan Institute Publications, 2008.
+- di Conti, Ugolini. _Memoriale propositi_. 1221. (lost ‘original’ text of the Third Order Regular Rule, written at the request of St Francis and elaborated on the occasion of the General Chapter of 1221)
+- Esser, Kajetan. _Die Opuscula des hl. Franziskus von Assisi. Neue textkritische Edition_. Grottaferrata: Collegio S. Bonaventura, 1976.
+- -----, _Origins of the Franciscan Order_. Chicago: Franciscan Herald Press, 1970.
+- García Oro, José. _Los franciscanos en España: historia de un itinerario religioso_. Santiago de Compostela: Editorial Eco Franciscano, 2006.
+- -----, and Segundo L. Pérez López. “La reforma religiosa durante la gobernación del cardinal Cisneros (1516-1518): hacia la consolidación de un largo proceso.” _Annuarium Sancti Iacobi_ 1 (2012): 47-174.
+- Huber, Raphael M. _A Documented History of the Franciscan Order: 1182-1517_. Milwaukee: The Nowiny Publishing Apostolate, 1944.
+- Les Eluminures. “Vendor Description: MsSpan1.” University of Victoria. [Web](https://www.uvic.ca/library/locations/home/spcoll/documents/MsSpan1.pdf).
+- Luengo, Juan José Antequera. _Notas artísticas sobre las iglesias de Tomares y San Juan de Aznalfarache (Sevilla)_. Sevilla: FacEdiciones, 2009.
+- Marotta, Giulia. “Franciscanism and Ecclesiastical Hierarchy as a Hermenuetic Dilemma of Contemporary Catholicism.” _Handbook of Global Contemporary Christianity: Movements, Institutions, and Allegiance_. Ed. Stephen Hunt. Leiden: Brill, 2016.
+- McClure, Julia. _The Franciscan Invention of the New World_. Cham: Palgrave Macmillan, 2017.
+- McKendrick, Geraldine. _The Franciscan Order in Castile, c. 1440 – c. 1560_. 1987. University of Edinburgh, PhD Dissertation.
+- Moorman, John R. H. _A History of the Franciscan Order from its Origins to the Year 1517_. Oxford: Clarendon P, 1968.
+- -----. _Medieval Franciscan Houses_. St. Bonaventure: Franciscan Institute, St. Bonaventure University, 1983.
+- More, Alison. “Dynamics of Regulation, Innovation, and Invention.” _A Companion to Observant Reform in the Late Middle Ages and Beyond_. Ed. James D. Mixson and Bert Roest. Leiden: Brill, 2015.
+- -----. “Institutionalization of Disorder: The Fransciscan Third Order and Canonical Change in the Sixteenth Century.” _Franciscan Studies_ 71 (2013): 147-162. JSTOR.
+- 
 <br><br>
 
 ### Remediation and Digitization
