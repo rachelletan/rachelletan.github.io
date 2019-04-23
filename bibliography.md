@@ -43,14 +43,14 @@ subtitle: and Other Resources
 - Arbiol, Antonio. _La Ven. y Esclarecida Orden Tercera de S. Francisco_. p. 399. M.Romeu, 1714.
 - Bede, Jarrett, Ferdinand Heckmann, Benedict Zimmerman, Livarius Oliger, Odoric Jouve, Lawrence Hess, and John Doyle. “Third Orders.” _The Catholic Encyclopedia_. Vol. 14. New York: Robert Appleton Company, 1912. [Web](http://www.newadvent.org/cathen/14637b.htm).
 - Bihl, Michael. “Order of Friars Minor.” _The Catholic Encyclopedia_. Vol. 6. New York: Robert Appleton Company, 1909. [Web](http://www.newadvent.org/cathen/06281a.htm).
-- Carney, Margaret, Jean François Godet-Calogeras, and Suzanne M. Kush, eds. History of the Third Order Regular Rule: A Source Book. Saint Bonaventure: Franciscan Institute Publications, 2008.
+- Carney, Margaret, Jean François Godet-Calogeras, and Suzanne M. Kush, eds. _History of the Third Order Regular Rule: A Source Book_. Saint Bonaventure: Franciscan Institute Publications, 2008.
 - di Conti, Ugolini. _Memoriale propositi_. 1221. (lost ‘original’ text of the Third Order Regular Rule, written at the request of St Francis and elaborated on the occasion of the General Chapter of 1221)
 - Esser, Kajetan. _Die Opuscula des hl. Franziskus von Assisi. Neue textkritische Edition_. Grottaferrata: Collegio S. Bonaventura, 1976.
 - -----, _Origins of the Franciscan Order_. Chicago: Franciscan Herald Press, 1970.
 - García Oro, José. _Los franciscanos en España: historia de un itinerario religioso_. Santiago de Compostela: Editorial Eco Franciscano, 2006.
 - -----, and Segundo L. Pérez López. “La reforma religiosa durante la gobernación del cardinal Cisneros (1516-1518): hacia la consolidación de un largo proceso.” _Annuarium Sancti Iacobi_ 1 (2012): 47-174.
 - Huber, Raphael M. _A Documented History of the Franciscan Order: 1182-1517_. Milwaukee: The Nowiny Publishing Apostolate, 1944.
-- Les Eluminures. “Vendor Description: MsSpan1.” University of Victoria. [Web](https://www.uvic.ca/library/locations/home/spcoll/documents/MsSpan1.pdf).
+- Les Eluminures. “Vendor Description: MS.Span.1.” University of Victoria. [Web](https://www.uvic.ca/library/locations/home/spcoll/documents/MsSpan1.pdf).
 - Luengo, Juan José Antequera. _Notas artísticas sobre las iglesias de Tomares y San Juan de Aznalfarache (Sevilla)_. Sevilla: FacEdiciones, 2009.
 - Marotta, Giulia. “Franciscanism and Ecclesiastical Hierarchy as a Hermenuetic Dilemma of Contemporary Catholicism.” _Handbook of Global Contemporary Christianity: Movements, Institutions, and Allegiance_. Ed. Stephen Hunt. Leiden: Brill, 2016.
 - McClure, Julia. _The Franciscan Invention of the New World_. Cham: Palgrave Macmillan, 2017.
@@ -59,7 +59,19 @@ subtitle: and Other Resources
 - -----. _Medieval Franciscan Houses_. St. Bonaventure: Franciscan Institute, St. Bonaventure University, 1983.
 - More, Alison. “Dynamics of Regulation, Innovation, and Invention.” _A Companion to Observant Reform in the Late Middle Ages and Beyond_. Ed. James D. Mixson and Bert Roest. Leiden: Brill, 2015.
 - -----. “Institutionalization of Disorder: The Fransciscan Third Order and Canonical Change in the Sixteenth Century.” _Franciscan Studies_ 71 (2013): 147-162. JSTOR.
-- 
+- Oliger, Livarius. “Rule of Saint Francis.” _The Catholic Encyclopedia_. Vol. 6. New York: Robert Appleton Company, 1909. [Web](http://www.newadvent.org/cathen/06208a.htm). 1 March 2019.
+- Péano, Pierre. “Las religiosas franciscanas: Orígenes, historia y valores constants.” _Directorio Franciscano_. [Web](http://www.franciscanos.org/historia/Peano-LasReligiosasFranciscanas.htm). 1 March 2019.
+- Peterson Ingrid. “The Third Order Tradition of Evangelical Life: A Prophetic Witness to the Whole of the Gospel.” _Franciscan Studies_ 64 (2006): 435-473. JSTOR.
+- Powell, James M. “The Papacy and the Early Franciscans.” _Franciscan Studies_ 36 (1976): 248-262. JSTOR.
+- Pulido, Manuel Jiménez, Francisco Siles Guerrero, and Sergio Ramírez González. _La Tercera Orden Regular en Andalucía. Caños Santos: Historia y Vida de un Desierto Franciscano en los Confines del Reino de Sevilla_. Editorial La Serranía, 2008.
+- Robson, Michael J. _The Franciscans in the Middle Ages_. Woodbridge: Boydell Press, 2006.
+- _Rule of the Third Order Regular of Our Holy Father Saint Francis_. Herald Print, 1906. [Web](https://archive.org/details/ruleofthirdorder00fran/page/n5).
+- Sastre Palmer, Nicholas. “Franciscan Friars Third Order Regular – Spain,” trans. Seraphin Conley. _The Franciscans_. [Web](http://anne.ontargetwebsolutions.com/~friars/archive/theorder/Provinces/stf_the_order_in_spain.htm).
+- -----. “History of the Third Order Regular,” trans. Seraphin Conley. _The Franciscans_. [Web](http://anne.ontargetwebsolutions.com/~friars/archive/resources/Histories_Third_Order_Regular/stf_history_Nicholas_Sastre_Palmer_TOR.htm).
+- “Tablada Rare Books Order.” _Textmanuscripts_. [Web](http://www.textmanuscripts.com/medieval/antonio-tablada-holy-order-60989).
+- Tamajón, Jesús Ruiz. “Hermandad Sacramental de Tomares.” _Andalucía Información_. 24 Nov. 2014. [Web](http://andaluciainformacion.es/cofradesevilla/458218/hermandad-sacramental-de-tomares). 3 March 2016.
+- “TOR Rule.” _Franciscan Friars_. Franciscans Third Order Regular. [Web](http://www.franciscanstor.org/The_Life/TOR_Rule).
+- Vegas, Milagros León. “Un Enclave Sacralizado en la Urbe Antequerana. La Ermita, Beaterio y Hospital de la Vera-Cruz (Siglos XVI-XVIII).” March 2006. [PDF File](http://hdl.handle.net/10630/6794).
 <br><br>
 
 ### Remediation and Digitization
@@ -67,7 +79,7 @@ subtitle: and Other Resources
 - Bolter, Jay David, and Richard Grusin. _Remediation: Understanding New Media_. Cambridge: MIT Press, 1999.
 - Boyle, Jennifer, and Helen J. Burgess. _The Routledge Research Companion to Digital Medieval Literature_. London: Routledge, Taylor & Francis Group, 2018.
 - Corbett, Sam. “Text-to-Text Remediation.” _Writing Commons_. [Web](https://writingcommons.org/text-to-text-remediation).
-- Donavan, Cana. “Ms.Span.1: Transcription of 11r28-16v.” Dec. 2015. Microsoft Word File.
+- Donavan, Cana. “MS.Span.1: Transcription of 11r28-16v.” Dec. 2015. Microsoft Word File.
 - Equipo Mini Lazarillo. Mini Lazarillo: Edición mínima del Lazarillo de Tormes. Columbia University, 2016. [Web](https://minilazarillo.github.io/).
 - Galey, Alan, Richard Cunningham, Brent Nelson, Ray Siemens, and Paul Werstine. “Beyond Remediation: The Role of Textual Studies in Implementing New Knowledge Environments.” _New Technologies in Medieval and Renaissance Studies_ 3 (2011): 21-48.
 - Grant, Danielle. _Conversations Between Medieval Texts and Digital Editions: The Remediation of Harley 4205_. 2017. University of Saskatchewan, Master’s Thesis.
