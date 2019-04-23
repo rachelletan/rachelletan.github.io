@@ -58,11 +58,11 @@ subtitle: and Other Resources
 - Moorman, John R. H. _A History of the Franciscan Order from its Origins to the Year 1517_. Oxford: Clarendon P, 1968.
 - -----. _Medieval Franciscan Houses_. St. Bonaventure: Franciscan Institute, St. Bonaventure University, 1983.
 - More, Alison. “Dynamics of Regulation, Innovation, and Invention.” _A Companion to Observant Reform in the Late Middle Ages and Beyond_. Ed. James D. Mixson and Bert Roest. Leiden: Brill, 2015.
-- -----. “Institutionalization of Disorder: The Fransciscan Third Order and Canonical Change in the Sixteenth Century.” _Franciscan Studies_ 71 (2013): 147-162. JSTOR.
+- -----. “Institutionalization of Disorder: The Fransciscan Third Order and Canonical Change in the Sixteenth Century.” _Franciscan Studies_ 71 (2013): 147-162. _JSTOR_.
 - Oliger, Livarius. “Rule of Saint Francis.” _The Catholic Encyclopedia_. Vol. 6. New York: Robert Appleton Company, 1909. [Web](http://www.newadvent.org/cathen/06208a.htm). 1 March 2019.
 - Péano, Pierre. “Las religiosas franciscanas: Orígenes, historia y valores constants.” _Directorio Franciscano_. [Web](http://www.franciscanos.org/historia/Peano-LasReligiosasFranciscanas.htm). 1 March 2019.
-- Peterson Ingrid. “The Third Order Tradition of Evangelical Life: A Prophetic Witness to the Whole of the Gospel.” _Franciscan Studies_ 64 (2006): 435-473. JSTOR.
-- Powell, James M. “The Papacy and the Early Franciscans.” _Franciscan Studies_ 36 (1976): 248-262. JSTOR.
+- Peterson Ingrid. “The Third Order Tradition of Evangelical Life: A Prophetic Witness to the Whole of the Gospel.” _Franciscan Studies_ 64 (2006): 435-473. _JSTOR_.
+- Powell, James M. “The Papacy and the Early Franciscans.” _Franciscan Studies_ 36 (1976): 248-262. _JSTOR_.
 - Pulido, Manuel Jiménez, Francisco Siles Guerrero, and Sergio Ramírez González. _La Tercera Orden Regular en Andalucía. Caños Santos: Historia y Vida de un Desierto Franciscano en los Confines del Reino de Sevilla_. Editorial La Serranía, 2008.
 - Robson, Michael J. _The Franciscans in the Middle Ages_. Woodbridge: Boydell Press, 2006.
 - _Rule of the Third Order Regular of Our Holy Father Saint Francis_. Herald Print, 1906. [Web](https://archive.org/details/ruleofthirdorder00fran/page/n5).
@@ -76,15 +76,26 @@ subtitle: and Other Resources
 
 ### Remediation and Digitization
 
+- Attali, Dean. _Beautiful Jekyll_. 2018. [Web](https://deanattali.com/beautiful-jekyll).
+- Biberauer, Theresa, Anders Holmberg, Ian Roberts, and Michelle Sheehan. _Parametric Variation: Null Subjects in Minimalist Theory_. Cambridge: Cambridge UP, 2010.
 - Bolter, Jay David, and Richard Grusin. _Remediation: Understanding New Media_. Cambridge: MIT Press, 1999.
 - Boyle, Jennifer, and Helen J. Burgess. _The Routledge Research Companion to Digital Medieval Literature_. London: Routledge, Taylor & Francis Group, 2018.
+- Bringhurst, Robert. _Elements of Typographical Style_. 2nd ed. Vancouver: Hartley and Marks, 1997.
 - Corbett, Sam. “Text-to-Text Remediation.” _Writing Commons_. [Web](https://writingcommons.org/text-to-text-remediation).
 - Donavan, Cana. “MS.Span.1: Transcription of 11r28-16v.” Dec. 2015. Microsoft Word File.
-- Equipo Mini Lazarillo. Mini Lazarillo: Edición mínima del Lazarillo de Tormes. Columbia University, 2016. [Web](https://minilazarillo.github.io/).
+- Equipo Mini Lazarillo. _Mini Lazarillo: Edición mínima del Lazarillo de Tormes_. Columbia University, 2016. [Web](https://minilazarillo.github.io/).
 - Galey, Alan, Richard Cunningham, Brent Nelson, Ray Siemens, and Paul Werstine. “Beyond Remediation: The Role of Textual Studies in Implementing New Knowledge Environments.” _New Technologies in Medieval and Renaissance Studies_ 3 (2011): 21-48.
+- Glover, Kaiama L., and Alex Gil, editors. _sx archipelagos_. Small Axe, Inc., 2017. [Web](http://smallaxe.net/sxarchipelagos). Accessed 3 April 2019.
+- GO::DH Working Group. _Minimal Computing_. [Web](http://go-dh.github.io/mincomp/about). Accessed 3 April 2019.
 - Grant, Danielle. _Conversations Between Medieval Texts and Digital Editions: The Remediation of Harley 4205_. 2017. University of Saskatchewan, Master’s Thesis.
 - Gruenberger, Jaclyn. _The Early Modern Heraldry Handbook: An Introduction to Victoria, McPherson Library, MS.Brown.Eng.2, including a Semi-Diplomatic Transcription of its Catalogue of English Nobility from William the Conqueror to Elizabeth I_. 2016. University of Victoria, Master’s Project.
+- Jenstad, Janelle, Zaqir Virani, Tye Landels-Gruenewald, and Sarah Milligan. “Encode a Primary Source Transcription.” _The Map of Early Modern London_, edited by Janelle Jenstad, U of Victoria, 20 Jun. 2018. [Web](mapoflondon.uvic.ca/encoding_primary_sources.htm).
 - Johnston, Michael, and Michael Dussen. _The Medieval Manuscript Book: Cultural Approaches_. Cambridge: Cambridge University Press, 2015.
+- Kirschenbaum, Matthew G. _Mechanisms: New Media and the Forensic Imagination_. New York: MIT Press, 2012.
 - Littau, Karin. “First Steps Towards a Media History of Translation.” _Translation Studies_ 4 (2011): 261-281.
+- McLuhan, Marshall. _Understanding Media: The Extensions of Man_. New York: MIT Press, 1994.
+- “Philosophy.” _Jekyll_. [Web](https://jekyllrb.com/philosophy/). Accessed 3 April 2019.
+- Schopp, Jürgen F. “Typography and Layout as a Translation Problem.” Congress of the Fédération Internationale des Traducteurs (FIT), 2002, Vancouver, Proceedings. 271-275. Translated by John Hopkins. [Web](https://people.uta.fi/~trjusc/vancouver.htm).
 - Southam, Chantal. “Ms.Span.1: List of Contents.” Dec. 2015. [PDF File](https://www.uvic.ca/library/locations/home/spcoll/documents/ms-span-1_contents.pdf)
+- Torrent, Susanna Allés, Terry Catapano, Alex Gil, and Johann Gillium, editors. _Ed_. Columbia University Libraries, 2019. [Web](https://elotroalex.github.io/ed/).
 
