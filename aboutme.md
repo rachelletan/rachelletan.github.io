@@ -1,7 +1,7 @@
 ---
 layout: page
 title: About me
-subtitle: Rachelle Ann Tan
+subtitle:
 ---
 
 I am a master's student in the department of English at the University of Victoria and a part-time technical writer for the BC government. Whether it is through my research, writing, or teaching, I am passionate about making technologies work and be more accessible for people.
