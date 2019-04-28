@@ -3,12 +3,15 @@ layout: page
 title: Facsimile Images
 subtitle: Images of MS.Span.1 provided by <a href="http://contentdm.library.uvic.ca/cdm/compoundobject/collection/collection15/id/2403">UVic Digital Collections</a>
 ---
- 
+
+Click on the image thumbnail to enlarge it.
+<br>
+
 Recto | Verso
 --------- | ---------
-[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333">](https://drive.google.com/open?id=1AyAZ4tTgiIo96yOIW20ZkFN-EdVe4Nf7) | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333">](https://drive.google.com/open?id=1AyAZ4tTgiIo96yOIW20ZkFN-EdVe4Nf7) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">](https://drive.google.com/open?id=1XXMULzu6p2ZE31HhR_fynwR3yxfv8GzD)
 fol. 1r | fol. 1v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2337"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2338">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2337">](https://drive.google.com/open?id=1tjkD0sMg8HX1vSG79PTCSH99gskcPAQL) | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2338">
 fol. 2r | fol. 2v
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2339"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2340">
 fol. 3r | fol. 3v
