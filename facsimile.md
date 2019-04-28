@@ -57,21 +57,21 @@ fol. 22r | fol. 22v
 fol. 23r | fol. 23v
 [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2381">](https://drive.google.com/open?id=1R4kZttEJYshQjCrTs5NvsXdl87_akbzM) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2382">](https://drive.google.com/open?id=1Imw5tFw4pTxV3yorkxc7tFf-2oU7-jYl)
 fol. 24r | fol. 24v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2383"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2384">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2383">](https://drive.google.com/open?id=119LHlVV0J0bXKb6OFiia0mqv8LbY4qSZ) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2384">](https://drive.google.com/open?id=1A1gNl8hjcHfGPf1IY_4l8Elchey9Xgl2)
 fol. 25r | fol. 25v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2385"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2386">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2385">](https://drive.google.com/open?id=1BBimq-vITf3tVCM3vdy2EKUgp2u-A-5k) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2386">](https://drive.google.com/open?id=1OqTkjibvu3uJhKeP2MbzUiT5aQaUOSg7)
 fol. 26r | fol. 26v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2387"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2388">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2387">](https://drive.google.com/open?id=1GH51u8RZA8C__W8tARdNXzf6eVPd6b4L) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2388">](https://drive.google.com/open?id=1qnOzqDG_csdze8G4Z85BdQV6jXkrDzvQ)
 fol. 27r | fol. 27v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2389"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2390">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2389">](https://drive.google.com/open?id=1UJUxWC0-0VZlbai3-LmLJce7hpoQnmUW) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2390">](https://drive.google.com/open?id=1yN51h52B4KDcn6QPGhHBob4X2RZ_R4wT)
 fol. 28r | fol. 28v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2391"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2392">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2391">](https://drive.google.com/open?id=12-zaUElGL4cuMXE-Pj4FDcqyygZGDYu4) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2392">](https://drive.google.com/open?id=1eEYeTlh_f1wmztXAaFnPc9VIrOhekrvQ)
 fol. 29r | fol. 29v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2393"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2394">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2393">](https://drive.google.com/open?id=1IQhB9CtM6ZNj_o_Q5k5Owp4-suIx-FUs) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2394">](https://drive.google.com/open?id=1xjo8Qv_fxxl_h1RanrnombhxuMvHjate)
 fol. 30r | fol. 30v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2395"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2396">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2395">](https://drive.google.com/open?id=1qRnbNm8bDhYOUrqSXokQjwYQ4Fe3r_hC) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2396">](https://drive.google.com/open?id=1X1lNS2x0pHaxZhk2GcwmGKZpx_W-Apmw)
 fol. 31r | fol. 31v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2397"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2398">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2397">](https://drive.google.com/open?id=1bWC-hAlBXN9CPBK8V7Xfkbbk395Cfr1w) | [<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2398">](https://drive.google.com/open?id=1Qc9h1le-emw58KcDC9Aass57HBNK8XqW)
 fol. 32r | fol. 32v
-<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2399"> |   
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2399">](https://drive.google.com/open?id=1AjBZaZp6WVxdfROjHZLoTpnS8YdYicBQ) |   
 fol. 33r |  
