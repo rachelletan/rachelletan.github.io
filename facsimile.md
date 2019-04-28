@@ -6,7 +6,7 @@ subtitle: Images of MS.Span.1 provided by <a href="http://contentdm.library.uvic
  
 Recto | Verso
 --------- | ---------
-[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333">](https://drive.google.com/open?id=0BwZr3TJwKPK4a2ZWbkxRUGF4aTQ) | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
+[<img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2333">](https://drive.google.com/open?id=1AyAZ4tTgiIo96yOIW20ZkFN-EdVe4Nf7) | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2336">
 fol. 1r | fol. 1v
 <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2337"> | <img src="http://contentdm.library.uvic.ca/utils/getthumbnail/collection/collection15/id/2338">
 fol. 2r | fol. 2v
