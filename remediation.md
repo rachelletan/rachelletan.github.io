@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Remediation
-subtitle: Theory and Methodology
+subtitle: 
 ---
 
 This project is a work of remediation, and it thus pays particular attention to the effectiveness of the use of a different medium to achieve the goal of improving the accessibility of MS.Span.1’s text for those primarily working in the English language. The following are some questions that emerged as I developed the digital edition of the manuscript:
