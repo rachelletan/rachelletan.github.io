@@ -10,4 +10,10 @@ I present my digital edition of MS.Span.1 via a GitHub Pages website using the t
 
 This choice also aligns with my aims of foregrounding the textual components of MS.Span.1 (as opposed to the rest of the manuscript’s physical features or the features of the website itself) and of improving the accessibility of the text via the internet: fewer features on the website means users are less likely to be distracted by the usability of the site and more likely to focus on the content.
 
-Further, a stable website with relatively few external dependencies means that the site is less likely to break down, and hence become unavailable, in the future. Purposely choosing to engage in computing practices that are not high-performance serves to address these main questions raised by minimal computing: what do we need, and what don’t we need? We need an infrastructure that is easy to use and lasts, and not necessarily one that is aesthetically pleasing but complicated.
+Further, a stable website with relatively few external dependencies means that the site is less likely to break down, and hence become unavailable, in the future. Purposely choosing to engage in computing practices that are not high-performance serves to address these main questions raised by minimal computing (see GO::DH Working Group, "About"): what do we need, and what don’t we need? We need an infrastructure that is easy to use and lasts, and not necessarily one that is aesthetically pleasing but complicated.
+<br>
+<br>
+### Works Cited
+- Attali, Dean. [Beautiful Jekyll](https://deanattali.com/beautiful-jekyll). 2018.
+- GO::DH Working Group. "About." [Minimal Computing](http://go-dh.github.io/mincomp/about/). Accessed 29 April 2019.
+- "Philosophy." [Jekyll](https://jekyllrb.com/philosophy/). 2019.
