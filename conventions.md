@@ -36,3 +36,10 @@ Naturally, MS.Span.1 includes a plethora of archaic Spanish words and usages unf
 While almost all of MS.Span.1 is in the Spanish vernacular, the scribe also copied and employed Latin with some frequency. Code switching from Spanish to Latin without indication or script change is not uncommon in the text. Many of the Latin words used emerged from religious or legal contexts—for example, _item_ (“in like manner” or “also”) and _ad perpetuam_ (“everlasting” or “permanently”) are repeated frequently, subtly emphasizing the official nature of this Rule—though Latin quotation of papal bulls, Bible verses, and prayers are also included.
 
 In the translation, I italicize words translated from Latin for ease of identification, with the exception of words that retain their Latinate spelling and use in English today. For example, the Lord’s Prayer (i.e., the “Our Father”) appears in the manuscript as Latin _Pater Noster_; however, I retain the common noun “Paternoster” still in use in Modern English, so that the translated text stays close to the original text wherever possible.
+<br>
+<br>
+<hr>
+### Works Cited
+- Bringhurst, Robert. _Elements of Typographical Style_. 2nd ed. Vancouver: Hartley and Marks, 1997.
+- Clemens, Raymond, and Timothy Graham. _Introduction to Manuscript Studies_. Ithaca: Cornell UP, 2007.
+- MacKenzie, David. _A Manual of Manuscript Transcription for the Dictionary of the Old Spanish Language_. Madison: Hispanic Seminary of Medieval Studies, 1984.
