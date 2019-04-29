@@ -4,7 +4,7 @@ title: Project Rationale
 subtitle: Why create a minimal digital edition?
 ---
 
-I present my digital edition of MS.Span.1 via a GitHub Pages website using the theme “Beautiful Jekyll” created by Dean Attali. Jekyll is a simple, extendable, static site generator: it transforms inputted text into a static website according to a defined layout or theme. My decision to use a Jekyll theme in the creation of the digital edition rests heavily on Jekyll’s third core philosophy, which describes Jekyll as “focus\[ing\] on content first and foremost, making the process of publishing content on the Web easy. Users should find the management of their content enjoyable and simple.”
+I present my digital edition of MS.Span.1 via a GitHub Pages website using the theme “[Beautiful Jekyll](https://deanattali.com/beautiful-jekyll)” created by Dean Attali. Jekyll is a simple, extendable, static site generator: it transforms inputted text into a static website according to a defined layout or theme. My decision to use a Jekyll theme in the creation of the digital edition rests heavily on Jekyll’s third [core philosophy](https://jekyllrb.com/philosophy/), which describes Jekyll as “focus\[ing\] on content first and foremost, making the process of publishing content on the Web easy. Users should find the management of their content enjoyable and simple.”
 
 “Simplicity” is a key word here. While I could have opted for more elaborate—and potentially more complicated—ways to generate the website for a digital edition of MS.Span.1, it was not necessary to do so, nor in line with my own core philosophies of creating minimal and accessible approaches for users and readers; I chose a simple and robust (in the sense of sturdy and sustainable) solution.
 
@@ -14,6 +14,6 @@ Further, a stable website with relatively few external dependencies means that t
 <br>
 <br>
 ### Works Cited
-- Attali, Dean. [Beautiful Jekyll](https://deanattali.com/beautiful-jekyll). 2018.
+- Attali, Dean. [Beautiful Jekyll](https://deanattali.com/beautiful-jekyll). 2018. Accessed 29 April 2019.
 - GO::DH Working Group. "About." [Minimal Computing](http://go-dh.github.io/mincomp/about/). Accessed 29 April 2019.
-- "Philosophy." [Jekyll](https://jekyllrb.com/philosophy/). 2019.
+- "Philosophy." [Jekyll](https://jekyllrb.com/philosophy/). 2019. Accessed 29 April 2019.
