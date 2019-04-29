@@ -20,4 +20,4 @@ Like Grant’s thesis, this project is a work of remediation, which Jay Bolter a
 ### Works Cited
 - Bolter, Jay David, and Richard Grusin. _Remediation: Understanding New Media_. Cambridge: MIT Press, 1999.
 - Grant, Danielle. _Conversations Between Medieval Texts and Digital Editions: The Remediation of Harley 4205_. 2017. University of Saskatchewan, Master’s Thesis.
-- Les Eluminures. “Vendor Description: MS.Span.1.” University of Victoria. [Web](https://www.uvic.ca/library/locations/home/spcoll/documents/MsSpan1.pdf).
+- Les Eluminures. “[Vendor Description: MS.Span.1](https://www.uvic.ca/library/locations/home/spcoll/documents/MsSpan1.pdf).” University of Victoria.
