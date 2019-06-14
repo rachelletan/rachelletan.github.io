@@ -1,14 +1,14 @@
 <head>
   <meta charset="utf-8" />
-  <meta http-equiv="X-UA-Compatible" content="IE=edge">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, viewport-fit=cover">
+  <meta http-equiv="X-UA-Compatible" content="IE=edge"/>
+  <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, viewport-fit=cover"/>
 
   <title>{% if page.use-site-title %}{{ site.title }} {{ site.title-separator }} {{ site.description }}{% elsif page.title %}{{ page.title }}{% else %}{{ site.title }}{% endif %}</title>
 
   <meta name="author" content="{{ site.author.name }}" />
 
   {% if page.subtitle %}
-  <meta name="description" content="{{ page.subtitle }}">
+  <meta name="description" content="{{ page.subtitle }}"/>
   {% endif %}
 
   <link rel="alternate" type="application/rss+xml" title="{{ site.title }} {{ site.title-separator }} {{ site.description }}" href="{{ site.baseurl }}/feed.xml" />
@@ -67,11 +67,11 @@
   {% endif %}
 
    {% if page.meta-description %}
-  <meta property="og:description" content="{{ page.meta-description }}">
+  <meta property="og:description" content="{{ page.meta-description }}"/>
   {% elsif page.subtitle %}
-  <meta property="og:description" content="{{ page.subtitle }}">
+  <meta property="og:description" content="{{ page.subtitle }}"/>
   {% else %}
-  <meta property="og:description" content="{{ page.content | strip_html | xml_escape | truncatewords: 50 }}">
+  <meta property="og:description" content="{{ page.content | strip_html | xml_escape | truncatewords: 50 }}"/>
   {% endif %}
 
 
@@ -106,11 +106,11 @@
   {% endif %}
 
   {% if page.meta-description %}
-  <meta name="twitter:description" content="{{ page.meta-description }}">
+  <meta name="twitter:description" content="{{ page.meta-description }}"/>
   {% elsif page.subtitle %}
-  <meta name="twitter:description" content="{{ page.subtitle }}">
+  <meta name="twitter:description" content="{{ page.subtitle }}"/>
   {% else %}
-  <meta name="twitter:description" content="{{ page.content | strip_html | xml_escape | truncatewords: 50 }}">
+  <meta name="twitter:description" content="{{ page.content | strip_html | xml_escape | truncatewords: 50 }}"/>
   {% endif %}
 
   {% if page.share-img %}
